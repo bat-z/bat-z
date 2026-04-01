@@ -1,2 +1,1 @@
-
-I stay in safe most of time,sometimes I go join spanish with my friends. On safe, You will found me on Transformers, Deltarune/Undertale,Dandy's world, ooor middle of nowhere. I stayed there to hang out with one of my closest buddies and chill. Since I am alone most of time, I usually walk around the map or stay on an island when I'm bored, or do some random roleplay or something like create new oc or cosplay. 
+so I drew squirm
