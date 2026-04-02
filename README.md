@@ -1,2 +1,2 @@
 So I got bored and drew Squirm. I'm not really a huge fan of him, but he's fun to draw!
-![image_alt](https://github.com/rihcos/rihcos/blob/4107161d458a2e20e70bfbb749ee022744bbad6a/Untitled204_20260402160407.png)
+![image_alt](https://github.com/rihcos/rihcos/blob/6363c8abafbac2e68d51f123589fbdbe3047e084/Untitled204_20260402182855.png)
