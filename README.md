@@ -1,2 +1,2 @@
 so I got bored and drew squirm
-![image_alt](https://github.com/rihcos/rihcos/blob/bca999d666c56e7bca51a0b93e6d716bf44208f7/Untitled204_20260401233007.png)
+![image_alt](https://github.com/rihcos/rihcos/blob/2db148321b86495466c953ce5ccb552546459b5a/Untitled204_20260402005207.png)
