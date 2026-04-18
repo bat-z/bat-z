@@ -5,4 +5,4 @@ Here's some fanarts I drew! I have nowhere to post. Not huge fan of Dandy's worl
 
 ![image_alt](https://github.com/rihcos/rihcos/blob/f1da72ca3e7d5ade0178d49ab0e1058d828c7b60/Untitled206_20260417103349.png)
 
-![image_alt](https://github.com/rihcos/rihcos/blob/aa603d0f5557212e17b351c059b898e1bfd98740/Untitled186_20260417102719.png)
+![image_alt](https://github.com/rihcos/rihcos/blob/cf147063654c65690f28e65874bbb2ad85d92fbe/Untitled213_20260418130551.png)
