@@ -15,8 +15,14 @@ Here's some fanarts I drew! I have nowhere to post. Not huge fan of Squirm, but 
 
 ![image](https://github.com/rihcos/rihcos/blob/1af41d7403656559baa48e3dea4d45f78f8a6878/Untitled102_20260420163024.png)
 
-A gift for my friends, @shw1enholmes ;
+A gift for my friends,
+@thedeerhasdied
+@jimmyiktT
+@MagnetizedMinded
+@shw1enholmes ;
 ![image](https://github.com/rihcos/rihcos/blob/92efdad60651bf9be03ea11d4463a2e9344407b5/Untitled156_20260215161250.png)
+
+![image](https://github.com/rihcos/rihcos/blob/7934e40732a0c18597d6ee659a2cc70993fbd6ce/Untitled96_20260420172429.png)
 
 
 
