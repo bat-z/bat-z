@@ -8,3 +8,15 @@ Here's some fanarts I drew! I have nowhere to post. Not huge fan of Squirm, but 
 ![image_alt](https://github.com/rihcos/rihcos/blob/cf147063654c65690f28e65874bbb2ad85d92fbe/Untitled213_20260418130551.png)
 
 ![image_alt](https://github.com/rihcos/rihcos/blob/fc1e3b01b3442b3687d94b93786234fdf13c69bf/Untitled214_20260418141858.png)
+
+![image](https://github.com/rihcos/rihcos/blob/a7a1d08ad3c353eb07eb9773bea886d1e21b376a/Untitled216_20260420170809.png)
+
+![image](https://github.com/rihcos/rihcos/blob/3acfe45c2f95c063896de176d5940623e8feb921/Untitled101_20260420170341.png)
+
+![image](https://github.com/rihcos/rihcos/blob/1af41d7403656559baa48e3dea4d45f78f8a6878/Untitled102_20260420163024.png)
+
+A gift for my friends, @shw1enholmes ;
+![image](https://github.com/rihcos/rihcos/blob/92efdad60651bf9be03ea11d4463a2e9344407b5/Untitled156_20260215161250.png)
+
+
+
