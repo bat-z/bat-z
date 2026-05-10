@@ -1,4 +1,4 @@
-If I didn't read your text messages like in public or whispers, I'm sorry. I mostly didn't notice them or dont know to say anything
+If I didn't read your text messages like in public or whispers, I'm sorry. I mostly didn't notice them or dont know to what else to say
 
 Hal Jordan, Arin, Tara Markov, & Damian Wayne defender
 
