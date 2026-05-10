@@ -1,3 +1,5 @@
+If I didn't read your text messages like in public or whispers, I'm sorry. I mostly didn't notice them or dont know to say anything
+
 Hal Jordan, Arin, Tara Markov, & Damian Wayne defender
 
 Hellloo! I usually just hang around and then move on to random places. I no longer go to the comics area unless I'm with a close friend.
