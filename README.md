@@ -4,7 +4,7 @@ Hal Jordan, Arin, Tara Markov, & Damian Wayne defender
 
 Hellloo! I usually just hang around and then move on to random places. I no longer go to the comics area unless I'm with a close friend.
 
-Here's some fanarts I drew! Not huge fan of Dandy's world, I found the charcters cute n I had fun drawing them! I only post arts on tiktok, tumblr, or pinterest
+Here's some fanarts I drew! Not huge fan of Dandy's world, I found the charcters cute n I had fun drawing them! I only post arts on tiktok or tumblr. Idk where else to post
 
 ![image_alr](https://github.com/rihcos/rihcos/blob/dafa4dac1e1f2f0d46b4ccb6226071733b9a07ae/Untitled223_20260428152527.jpeg)
 
