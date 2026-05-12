@@ -5,7 +5,7 @@ I apologize to those
 I had hurt I should have explained my reasons to them, but I didnt.
 
 -- Reading one of Erik's responses made me feel uncomfortable. I’m not taking anyone’s side, but I don’t believe that anyone who isn’t Black has the right to decide whether or not to forgive her. 
-99% of our group arent Black. I wasn’t there during the gc argement, and I never said that I forgave her. What made me feel uncomfortable was that she made multi racism jokes and then her almost saying the "N-word" several times before she was called out. I should have confronted her in first place or tell Erik about it, I choose not to because I was afraid of being jumped.
+99% of our group arent Black. I wasn’t there during the gc argement, and I never said that I forgave her. What made me feel uncomfortable was that she made multi racism jokes and then her almost saying the "N-word" several times before she was called out. I should have confronted her in first place or tell Erik about it, I choose not to because I was afraid of being jumped. Its make me annoyed that 99% of our group who are not black forgave her.
 
 
 
