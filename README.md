@@ -3,4 +3,4 @@ Fictionkin & yumes on thin ice  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀
 
 -- Hellloo! I usually just hang around and then move on to random places. I no longer go to the comics area unless I'm with a close friend.
 
-[ABOUT ME](https://oldmenyaoislop.straw.page)
+[ABOUT ME](https://oldmenyaoislop.straw.page) [ATABOOK](https://magicalgirll.atabook.org)
