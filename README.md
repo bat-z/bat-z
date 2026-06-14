@@ -1,5 +1,5 @@
 Reminder -- If I block someone by accident, let me know. 
-Fictionkin & yumes on thin ice  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀supernatural fans DNI
+Fictionkin & yumes on thin ice  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀supernatural fans & Joker kins please DNI
 
 -- Hellloo! I usually just hang around and then move on to random places. I no longer go to the comics area unless I'm with a close friend.
 
