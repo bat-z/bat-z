@@ -1,5 +1,4 @@
-Reminder -- I block freely to protect my mental health. please stop bothering my friends 
-
+Reminder -- I block freely to protect my mental health. 
 
 -- Hellloo! I usually just hang around and then move on to random places. I no longer go to the comics area unless I'm with a close friend.
 
