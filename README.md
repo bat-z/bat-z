@@ -1,4 +1,4 @@
-Reminder -- I block freely to protect my peace.
+Reminder -- I block freely! please stop bothering my friends Im not going unblock you
 
 -- Hellloo! I usually just hang around and then move on to random places. I no longer go to the comics area unless I'm with a close friend. I don't like comics area
 
