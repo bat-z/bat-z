@@ -75,7 +75,7 @@ ____________________________________
 ![image alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/main/tumblr_637b15c1503a5f7c36da23587d3b5fd5_76ef5aa0_500.gif?raw=true)
 
  
- ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
+
 
 
 
