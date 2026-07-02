@@ -72,12 +72,7 @@ ____________________________________
 
 ➤ If I unblock you on Ponytown, that means I don't remember the reasons why, or maybe I moved on.
 
-______________________________________
-
-
-
-
-![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/58d93dbd6b55d6a11a20ad12eba3141e75a66ad3/razer-red-lantern.gif) ![image alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/main/tumblr_637b15c1503a5f7c36da23587d3b5fd5_76ef5aa0_500.gif?raw=true)
+![image alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/main/tumblr_637b15c1503a5f7c36da23587d3b5fd5_76ef5aa0_500.gif?raw=true)
 
  
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
