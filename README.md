@@ -53,7 +53,7 @@ _____________________________________
 
 ➤ I do also multi/crossover/rarepairs; I enjoy people yapping about their ships and AU. interesting or not. I still won't judge, and I'll respect it. Whatever it is AU, serious/silly ships, crossovers, headcanons, etc. 
 
-➤ - I like to yap bout my interests. If you get tired of it, please let me know👍. I been into DC for a while since I was a kid
+➤ - I like to yap bout my interests. If you get tired of it, please let me know👍. I been into DC for a while since I was a kid That’s the only interest I liked talking about and maybe Ninjago.
 
 
 ![image_alt](https://github.com/metaleaterr/metaleaterr/blob/27e1f81af66089d3dfc3087fac6593ba34f6e9a6/IMG_3895.webp)
@@ -77,6 +77,5 @@ ____________________________________
  
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
 
-<!--](https://github.com/StaticSh0ck/StaticSh0ck/blob/main/97602c8032d6f4e57c4cb9797dde21ce.jpg?raw=true)
 
 
