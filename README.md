@@ -3,8 +3,20 @@ OLD ABOUT ME
   ![bat-z](https://komarev.com/ghpvc/?username=your-github-username&color=brightgreen)                                            
 
 
-[ATABOOK](https://magicalgirll.atabook.org) 
-  
+My ata: [Atabook](https://haljordan.atabook.org/)
+
+Here, if you wanna draw [New Strawpage](https://jordanhal.straw.page) 
+
+my old crusty strawpage [Strawpage1](https://ang3lcake.straw.page)
+
+If you're uhm interest to see my arts.
+[Strawpage2](https://ang3lcakeart.straw.page/)   
+[Tumblr](https://www.tumblr.com/blog/angelc3ke)
+[Instagram](https://www.instagram.com/haroldjordanfan/
+
+  Family tree! thisz is a remake, but we all penguins>:D ; [Family tree hehehe](https://jordanhal.straw.page/aremakeoffamilytree)
+
+Anyway, here are some things if you'd like to know about me. scroll down.
 
 
 ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/d1268c9e77cc3c6447c012d9cc4a2e234f88f5b4/97602c8032d6f4e57c4cb9797dde21ce.jpg)
