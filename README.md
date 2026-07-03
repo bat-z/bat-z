@@ -12,7 +12,7 @@ OLD ABOUT ME
 
 Some info about me;
 I'm . I'm an introvert n I don't talk much. I'm kinda awkward around new ppl, so it would take me a while to interact or be comfortable. 🫠 Please be patient with me. 
-I really love Green Lanterns and the flash. maybe into batman too.  Birthday is on the 23rd November!
+I really love Green Lanterns and the flash. maybe into batman too. 17yrBirthday is on the 23rd November!
 
 favorite color? mine is orange and green... 
 I am an artist and I love to draw a lot. I sometimes post my artworks on social media.
