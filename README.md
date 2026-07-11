@@ -23,7 +23,6 @@ ok
 </details>
 
 
-[![Alt Text](Image_URL)](Destination_URL)
 
 
 
