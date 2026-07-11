@@ -23,7 +23,6 @@ ok
 </details>
 
 
-<img src="./assets/logo.png" alt="Logo" width="400">
 
 
 
