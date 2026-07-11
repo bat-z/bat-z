@@ -7,6 +7,3 @@ its me the REAL hal jordan /j
 ![image_alt](https://github.com/bat-z/bat-z/blob/74c12cc1ee052e6cf57ac65a27636f746a12634b/IMG_5582.gif)
 
 
-
-
-! baka
