@@ -8,7 +8,7 @@ $${\color{#FF9A86}Its \ me \ the \ REAL \ hal \ jordan /j}$$
 
 
 <details>
-  <summary>Click to open my complete work history</summary>
+  <idk</summary>
 
   loser
 
