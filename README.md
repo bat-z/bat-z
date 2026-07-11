@@ -8,7 +8,7 @@ $${\color{#FF9A86}Its \ me \ the \ REAL \ hal \ jordan /j}$$
 
 
 <details>
-  <idk</summary>
+  < idk </summary>
 
   loser
 
