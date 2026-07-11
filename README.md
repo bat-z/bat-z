@@ -22,3 +22,12 @@ ok
 
 </details>
 
+
+$${\color{#FF9A86}Its \ 
+<details>
+<summary>yay !</summary>
+
+ok
+
+</details>
+ \ the \ REAL \ hal \ jordan /j}$$
