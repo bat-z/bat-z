@@ -23,7 +23,7 @@ ok
 </details>
 
 
-![Logo](./assets/logo.png)
+![Banner](https://example.com)
 
 
 
