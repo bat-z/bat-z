@@ -16,7 +16,7 @@ $${\color{#FF9A86}Its \ me \ the \ REAL \ hal \ jordan /j}$$
 
 2. Please check my kintypes list for doubles in pronouncc! to avoid accidental awkward situations 
 
-3. Be aware! This person is a survivor of abuse/SA/Groomings. Please be careful with what you say. I’m usually not bothered by sexually explicit jokes or some uncomfortle jokes, but it’s something to keep in mind. I do have my own triggers, but I don't bother telling anyone unless we're, like, very close...? I thought it would sound ridiculous and that people might use it against me lol.
+3. Be aware! This person is a survivor of abuse/SA/Groomings. Please be careful with what you say. I’m usually not bothered by sexually explicit jokes or some uncomfortle jokes, but it’s something to keep in mind. I do have my own triggers, but I don't bother telling anyone unless we're, like, very close...? I thought it would sound ridiculous lol.
 
 4.  Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way tell me! I will correct myself and then apologize. Don't be afraid to point it out to me like I said, I’m not afraid for my own mistakes 
 
