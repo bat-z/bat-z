@@ -32,7 +32,7 @@ more in here;
 <details>
 <summary>DISLIKES !</summary>
 
-1. I'm very afraid of heights, and I have misophonia. for basic, like loud chewing, slurping, heavy breathing, or things like that upsets me. I don't like fireworks either. I get anxious whenever I hear them outside.
+1. I'm very afraid of heights, and I have misophonia. for basic, like loud chewing, slurping, heavy breathing, or things like that upsets me. I like fireworks, but I hate the way they sound. I get anxious whenever I hear them outside.
  I don't like the smell of the banana.
 
 2. actual gore and fictional gore scare the shit out of me. small blood is perfctly fine but i pefer the pink fictional one.
