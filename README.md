@@ -98,7 +98,7 @@ I am a passionate **[Your Role, e.g., Full Stack Developer / Data Scientist]** f
 ### 📊 GitHub Stats
 
 <p align="left">
-  <img src="https://vercel.app" alt="GitHub Stats" height="180" />
+  <img src="https://pronouns.cc/@Boostle" alt="GitHub Stats" height="180" />
   <img src="https://vercel.app" alt="Top Languages" height="180" />
 </p>
 
