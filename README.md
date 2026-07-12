@@ -30,9 +30,11 @@ more in here;
 
 
 <details>
-<summary>yay !</summary>
+<summary>DISLIKES !</summary>
 
-ok
+1. I'm very afraid of heights, and I have misophonia. for basic, like loud chewing, slurping, heavy breathing, or things like that upsets me. I don't like fireworks either. I get anxious whenever I hear them outside.
+
+2. actual gore and fictional gore scare the shit out of me. small blood is perfctly fine but i pefer the pink fictional one.
 
 </details>
 
