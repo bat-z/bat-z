@@ -47,7 +47,6 @@ more in here;
 
 2. cod fans
 
-3. DW fans
 
 </details>
 
