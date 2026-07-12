@@ -9,9 +9,12 @@ $${\color{#FF9A86}Its \ me \ the \ REAL \ hal \ jordan /j}$$
 
 
 <details>                     
-<summary>Before you INT !</summary>
+<summary>BEFORE YOU INTERACT! !</summary>
 
- 1 - I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when comes with new people. I also overthink a lot and don’t want to come across as a annoying or that I'm botherin anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked me because of this without telling me what I’m doing wrong.
+ 1. I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when comes with new people. I also overthink a lot and don’t want to come across as a annoying or that I'm botherin anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong.
+
+
+2. Please check my kintypes list for doubles in pronouncc! to avoid accidental awkward situations 
 
 </details>
 
