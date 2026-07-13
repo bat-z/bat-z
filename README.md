@@ -3,7 +3,7 @@
 $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 [ATABOOK](https://magicalgirll.atabook.org/)
 
-
+  ![image_alt](https://raw.githubusercontent.com/bat-z/bat-z/f7cd7e36fa11d50be4181d808a29dcd98e55c055/%E0%A3%AA_%20%E2%81%BA%20doomguy.jpeg)
 
 ![image_alt](https://github.com/bat-z/bat-z/blob/b8a30f82e542d6be5ea1700a3deb052823096057/IMG_5732.gif)![image_alt](https://github.com/bat-z/bat-z/blob/b8a30f82e542d6be5ea1700a3deb052823096057/IMG_5732.gif)![image_alt](https://github.com/bat-z/bat-z/blob/b8a30f82e542d6be5ea1700a3deb052823096057/IMG_5732.gif)
 <img src="https://github.com/bat-z/bat-z/blob/74c12cc1ee052e6cf57ac65a27636f746a12634b/IMG_5582.gif" width="40%"> <img src="https://github.com/bat-z/bat-z/blob/9fa6e7e077ebc9174b977093441d556bcb9b0135/IMG_5585.gif" width="40%"> <img src="https://github.com/bat-z/bat-z/blob/1145d2d1952aac4e274b4c22cdd8aa82159a51d3/IMG_5581.gif" width="40%">
