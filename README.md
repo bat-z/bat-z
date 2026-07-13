@@ -5,7 +5,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
    ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ [ATABOOK](https://magicalgirll.atabook.org/)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀   [STRAWPAGE](https://jordanhal.straw.page) 
 
 <img src="https://raw.githubusercontent.com/bat-z/bat-z/f7cd7e36fa11d50be4181d808a29dcd98e55c055/%E0%A3%AA_%20%E2%81%BA%20doomguy.jpeg" width="50%">
-  
+  https://github.com/bat-z/StaticSh0ck/blob/94fab8e6e4d33cff882e482d776c3f81fd773029/914e5954b57ed5d26f282858805cf363.jpg
 
 
 ![image_alt](https://github.com/bat-z/bat-z/blob/b8a30f82e542d6be5ea1700a3deb052823096057/IMG_5732.gif)![image_alt](https://github.com/bat-z/bat-z/blob/b8a30f82e542d6be5ea1700a3deb052823096057/IMG_5732.gif)![image_alt](https://github.com/bat-z/bat-z/blob/b8a30f82e542d6be5ea1700a3deb052823096057/IMG_5732.gif)
