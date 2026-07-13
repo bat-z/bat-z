@@ -69,7 +69,8 @@ I block freely! If I don't like your vibe, I'll probably avoid or block you.
 <details>
 <summary>FANDOM !</summary>
 
-➤ planet of the apes
+
+planet of the apes
 
 MLP
 
@@ -109,7 +110,6 @@ Good Omens
 
 Villainous
 
-Ninjago
 
 Please please i don't want to be a magical girl
 
