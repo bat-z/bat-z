@@ -26,6 +26,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
 6. I tend to get very clingy to the people I feel comfortable with, and I end up being annoying if you don't like that, tell me.
 
+
 more in here;
 
 [BEFORE YOU INTERACT](https://oldmenyaoislop.straw.page/beforeyouinteract)
@@ -53,6 +54,15 @@ more in here;
 
 
 </details>
+
+<details>
+<summary>EXTRA !</summary>
+
+I block freely! If I don't like your vibe, I'll probably ignore or block you.
+
+
+</details>
+
 
 
 
