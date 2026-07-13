@@ -35,6 +35,8 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
  7. I don't really like large crowds also if it's a large group, I usually walk away.
 
+8. I'm actually pretty scared to interact with DC fans at first on safe, bec I don’t know... usually they’re all friends with my ex friends or with people who hurt me, and it gets really awkward.
+
 more in here;
 
 
@@ -52,7 +54,12 @@ more in here;
 
 </details>
 
+ <details>
+<summary>THIN ICS !</summary>
 
+DC fans 
+
+</details>
 
 <details>
 <summary>DNI !</summary>
