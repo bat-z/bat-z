@@ -70,28 +70,51 @@ I block freely! If I don't like your vibe, I'll probably avoid or block you.
 <summary>FANDOM !</summary>
 
 ➤ planet of the apes
+
 MLP
+
 Rescue bots/Transformers
+
 Marvel
+
 DC
+
 Octonauts
+
 arcane
+
 DreamZzz
+
 Sonic
+
 Ninjago
+
 Monkie kid
+
 Incredibles
+
 Undertale
+
 Deltarune
+
 Star Trek
+
 FNAF + fangames
+
 Kipo and the age of wonderbeasts
+
 Monster High
+
 Good Omens
+
 Villainous
+
 Ninjago
+
 Please please i don't want to be a magical girl
+
 TMNT
+
 Red dead Redemption II.
 
 ___________________________________
