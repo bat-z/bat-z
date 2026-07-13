@@ -11,9 +11,9 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
   ISTP
    
   Furry
-I always be with my closer friend 
 
-[erik/shwinn :3](https://github.com/shw1enholmes)
+
+I always be with my closer friend [erik/shwinn :3](https://github.com/shw1enholmes)
 
 
 <img src="https://github.com/bat-z/bat-z/blob/74c12cc1ee052e6cf57ac65a27636f746a12634b/IMG_5582.gif" width="40%"> <img src="https://github.com/bat-z/bat-z/blob/9fa6e7e077ebc9174b977093441d556bcb9b0135/IMG_5585.gif" width="40%"> <img src="https://github.com/bat-z/bat-z/blob/1145d2d1952aac4e274b4c22cdd8aa82159a51d3/IMG_5581.gif" width="40%">
