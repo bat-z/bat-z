@@ -11,6 +11,8 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
   ISTP
    
   Furry
+I always be with my closer friend 
+[@erik](https://github.com/shw1enholmes)
 
 
 <img src="https://github.com/bat-z/bat-z/blob/74c12cc1ee052e6cf57ac65a27636f746a12634b/IMG_5582.gif" width="40%"> <img src="https://github.com/bat-z/bat-z/blob/9fa6e7e077ebc9174b977093441d556bcb9b0135/IMG_5585.gif" width="40%"> <img src="https://github.com/bat-z/bat-z/blob/1145d2d1952aac4e274b4c22cdd8aa82159a51d3/IMG_5581.gif" width="40%">
@@ -35,7 +37,9 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
  7. I don't really like large crowds also if it's a large group, I usually walk away.
 
-8. I'm actually pretty scared to interact with DC fans at first on safe, bec I don’t know... usually they’re all friends with my ex friends or with people who hurt me, and it gets really awkward.
+8. I'm actually pretty scared to interact with DC fans at first on safe,uh idk;-; like most of them are freinds with my ex friends or with people who hurt me, and it gets really awkward.
+
+9.  I have bad sxious/health i will mostly leave ponytown or any online to taks multi breaks
 
 more in here;
 
