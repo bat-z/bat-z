@@ -38,7 +38,7 @@ I always be with my closer friend [erik/shwinn :3](https://github.com/shw1enholm
 
  7. I don't really like large crowds also if it's a large group, I usually walk away.
 
-8. I'm actually pretty scared to interact with DC fans at first on safe,uh idk;-; like most of them are freinds with my ex friends or with people who hurt me, and it gets really awkward.
+8. I'm actually pretty scared to interact with DC fans on safe,;-; like most of them are freinds with my ex friends or with people who hurt me, and it gets really awkward. I tryin to avoid them
 
 9.  I have bad sxious/health i will mostly leave ponytown or any online to taks multi breaks
 
