@@ -1,4 +1,4 @@
-<img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=FFB6A6">
+<img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=green">
 
 $${\color{#FF9A86} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 [ATABOOK](https://magicalgirll.atabook.org/)
