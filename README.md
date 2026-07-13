@@ -39,7 +39,7 @@ more in here;
 
 1. I'm very afraid of heights
 
-2. actual gore and fictional gore scare the shit out of me. 
+2. Actual gore and fictional gore scare the shit out of me. 
 
 </details>
 
