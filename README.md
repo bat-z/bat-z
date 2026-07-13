@@ -82,7 +82,7 @@ DC fans
 <details>
 <summary>EXTRA !</summary>
 
-I block freely! If I don't like your vibe, I'll probably avoid or block you.
+I block freely! If I don't like your vibe, I'll probably avoid or block you. or if its a double
 
 
 </details>
