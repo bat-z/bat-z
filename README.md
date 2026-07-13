@@ -17,19 +17,23 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
  <details>                     
 <summary>BEFORE YOU INTERACT! !</summary>
 
- 1. I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when comes with new people. I also overthink a lot and don’t want to come across as a annoying or that I'm botherin anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong.
+ 1. I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when comes with new people. I don’t want to come across as a annoying or that I'm botherin anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
 
 
-2. Please check my kintypes list for doubles in pronouncc! to avoid accidental awkward situations 
+2. I am a very sensitive person and overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no, especially to a random ppl or someone whos a friend oomf.
 
-3. Be aware! This person is a survivor of abuse/SA/Groomings. Please be careful with what you say. I’m usually not bothered by sexually explicit jokes or some uncomfortle jokes, but it’s something to keep in mind. I do have my own triggers, but I don't bother telling anyone unless we're, like, very close...? I thought it would sound ridiculous lol.
+3. Please check my kintypes list for doubles in pronouncc! to avoid accidental awkward situations 
 
-4.  Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way tell me! I will correct myself and then apologize. Don't be afraid to point it out to me like I said, I’m not afraid for my own mistakes 
+4. Be aware! This person is a survivor of abuse/SA/Groomings. Please be careful with what you say. I’m usually not bothered by sexually explicit jokes or some uncomfortle jokes, but it’s something to keep in mind. I do have my own triggers, but I don't bother telling anyone unless we're, like, very close...? I thought it would sound ridiculous lol.
+
+5.  Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way tell me! I will correct myself and then apologize. Don't be afraid to point it out to me like I said, I’m not afraid for my own mistakes 
 
 6. I tend to get very clingy to the people I feel comfortable with, and I end up being annoying if you don't like that, tell me.
 
+ 7. I don't really like large crowds also if it's a large group, I usually walk away.
 
 more in here;
+
 
 [BEFORE YOU INTERACT](https://oldmenyaoislop.straw.page/beforeyouinteract)
 
