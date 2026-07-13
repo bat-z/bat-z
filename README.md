@@ -58,7 +58,7 @@ more in here;
 <details>
 <summary>EXTRA !</summary>
 
-I block freely! If I don't like your vibe, I'll probably ignore or block you.
+I block freely! If I don't like your vibe, I'll probably avoid or block you.
 
 
 </details>
