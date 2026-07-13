@@ -2,7 +2,7 @@
 
 $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
  
-   ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ [ATABOOK](https://magicalgirll.atabook.org/)  [STRAWPAGE](https://jordanhal.straw.page) 
+   ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ [ATABOOK](https://magicalgirll.atabook.org/)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀   [STRAWPAGE](https://jordanhal.straw.page) 
 
 <img src="https://raw.githubusercontent.com/bat-z/bat-z/f7cd7e36fa11d50be4181d808a29dcd98e55c055/%E0%A3%AA_%20%E2%81%BA%20doomguy.jpeg" width="50%">
   
