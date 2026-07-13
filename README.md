@@ -1,6 +1,6 @@
 <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=green">
 
-$${\color{#GREEN} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
+$${\color{#green} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 [ATABOOK](https://magicalgirll.atabook.org/)
 
 
