@@ -6,7 +6,8 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
 <img src="https://raw.githubusercontent.com/bat-z/bat-z/f7cd7e36fa11d50be4181d808a29dcd98e55c055/%E0%A3%AA_%20%E2%81%BA%20doomguy.jpeg" width="50%"><img src="https://github.com/bat-z/StaticSh0ck/blob/94fab8e6e4d33cff882e482d776c3f81fd773029/914e5954b57ed5d26f282858805cf363.jpg" width="30%">
   
-  
+  Introverted and ISTP
+    Furry
 
 
 <img src="https://github.com/bat-z/bat-z/blob/74c12cc1ee052e6cf57ac65a27636f746a12634b/IMG_5582.gif" width="40%"> <img src="https://github.com/bat-z/bat-z/blob/9fa6e7e077ebc9174b977093441d556bcb9b0135/IMG_5585.gif" width="40%"> <img src="https://github.com/bat-z/bat-z/blob/1145d2d1952aac4e274b4c22cdd8aa82159a51d3/IMG_5581.gif" width="40%">
