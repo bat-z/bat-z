@@ -67,14 +67,14 @@ more in here;
  <details>
 <summary>THIN ICS !</summary>
 
-DC fans 
+DC fans(only in pt safe) unless friends
 
 </details>
 
 <details>
 <summary>DNI !</summary>
 
-1. spn, gorillaz, MLP, COD, & Batfam/superfam fanbase
+1. spn, gorillaz, MLP, COD, & Batfam/superfam fanbase unless friends
 
 
 2. ccherrypie/j-pawss & friends. Hoping he’s not around 
