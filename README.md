@@ -43,7 +43,7 @@ I always stay close with my lovely friends [erik/shwinn :3](https://github.com/s
 
  7. I don't really like large crowds also if it's a large group, I usually walk away.
 
-8. Batfam fans are a different story. I'm actually pretty scared to interact with DC fans on safe,;-; like most of them are freinds with my ex friends or with people who ruined my life, and it gets really awkward. I tryin to avoid them
+8. Batfam fans are a different story. I'm actually pretty scared to interact with DC fans on safe,;-; like most of them are freinds with my ex friends, and it gets really awkward. I tryin to avoid them
 
 9.  I have bad sxious/health i will mostly leave ponytown or any online to taks multi breaks
 
