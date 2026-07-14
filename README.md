@@ -77,7 +77,7 @@ DC fans(only in pt safe) unless friends
 1. spn, gorillaz, MLP, COD, & Batfam/superfam fanbase unless friends
 
 
-2. ccherrypie/j-pawss & friends. Hoping he’s not around 
+2. cch*rrypie/j-pawss & friends. Hoping he’s not around 
 
 
 </details>
