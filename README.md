@@ -13,7 +13,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
   Furry
 
 
-I always stay close with my lovely friends [erik/shwinn :3](https://github.com/shw1enholmes),[jimmy](https://github.com/jimmyiktT),
+I always stay close with my lovely friends [erik/shwinn :3](https://github.com/shw1enholmes), [jimmy](https://github.com/jimmyiktT), [kirk](https://github.com/thedeerhasdied), [hiro](https://github.com/hirokojie), & [glitch](https://github.com/AGl1tchWasF0und)! i lazy to list pthers
  
   One of my cool friend,[erik](https://github.com/shw1enholmes) drew my oc! <img src="https://github.com/bat-z/bat-z/blob/79202cb94bfe929016ec25f37cd8b2985a6ca8e3/Untitled132_20260712130437.png" width
   ="70%">
