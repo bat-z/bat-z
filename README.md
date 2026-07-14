@@ -26,7 +26,7 @@ I always be with my closer friend [erik/shwinn :3](https://github.com/shw1enholm
  1. I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when comes with new people. I don’t want to come across as a annoying or that I'm botherin anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
 
 
-2. I am a very sensitive person and overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no, especially to a random ppl or someone I disliked.
+2. I am a very sensitive person and overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
 
 3. Please check my kintypes list for doubles in pronouncc! to avoid accidental awkward situations 
 
