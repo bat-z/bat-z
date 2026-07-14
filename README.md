@@ -69,13 +69,11 @@ DC fans
 <details>
 <summary>DNI !</summary>
 
-1. spn fans
+1. spn, gorillaz, MLP, COD, & Batfam/superfam fanbase
 
-2. cod fans
 
-3. ccherrypie/j-pawss & friends. Hoping he’s not around 
+2. ccherrypie/j-pawss & friends. Hoping he’s not around 
 
-4. gorillaz fans
 
 </details>
 
@@ -94,7 +92,6 @@ I block freely! If I don't like your vibe, I'll probably avoid or block you. or 
 
 planet of the apes
 
-MLP
 
 Rescue bots/Transformers
 
