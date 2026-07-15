@@ -13,10 +13,10 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
  ⠀ 𐂂⠀- rest; Harv, Azro, Damian, Azrael,Thorne, koa, or Ghoul!
     
     
-  pron; they / she / any
+⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pron; they / she / any
       ⠀ ⠀ ⠀⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀
-<img src="https://github.com/bat-z/bat-z/blob/ffd01c67dd35cce9092d6eda8fc0ef5161f941bc/IMG_6034.jpeg" width="10%">
+⠀⠀ ⠀ ⠀ ⠀ ⠀<img src="https://github.com/bat-z/bat-z/blob/ffd01c67dd35cce9092d6eda8fc0ef5161f941bc/IMG_6034.jpeg" width="10%">
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀
 
 ⠀      ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀𐂂⠀  ⠀Introverted 
