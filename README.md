@@ -6,13 +6,15 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
 <img src="https://raw.githubusercontent.com/bat-z/bat-z/f7cd7e36fa11d50be4181d808a29dcd98e55c055/%E0%A3%AA_%20%E2%81%BA%20doomguy.jpeg" width="50%"><img src="https://github.com/bat-z/StaticSh0ck/blob/94fab8e6e4d33cff882e482d776c3f81fd773029/914e5954b57ed5d26f282858805cf363.jpg" width="30%">
   
-  Introverted 
-  
-  ISTP
+⠀ ⠀ ⠀⠀ ⠀ ⠀  names! I have a lot;
    
-  Furry
-
-
+ ⠀ ⠀ ⠀⠀ ⠀ ⠀   Hal or Hal
+ 
+  others; Harv, Aster, Azro, Damian, Azrael,Thorne, koa, or Ghoul!
+       ⠀ ⠀    ⠀Introverted 
+ ⠀ ⠀ ⠀⠀ ⠀   ISTP
+⠀     Furry, kemonomimi & alterhuman!
+______________________
 I always stay close with my lovely friends [erik/shwinn :3](https://github.com/shw1enholmes), [jimmy](https://github.com/jimmyiktT), [kirk](https://github.com/thedeerhasdied), [hiro](https://github.com/hirokojie), & [glitch](https://github.com/AGl1tchWasF0und)! i lazy to list pthers
  
   One of my cool friend,[erik](https://github.com/shw1enholmes) drew my oc! <img src="https://github.com/bat-z/bat-z/blob/79202cb94bfe929016ec25f37cd8b2985a6ca8e3/Untitled132_20260712130437.png" width
