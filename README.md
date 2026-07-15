@@ -25,7 +25,7 @@ I always stay close with my lovely friends [erik/shwinn :3](https://github.com/s
 
 
  <details>
-<summary>main kins</summary>
+<summary>MAIN KINTYPES</summary>
  Booster gold . HIGH
 
   Hal Jordan . ID - doubles? DNI
@@ -50,6 +50,11 @@ Luo xiaohei . ID - doubles? IWEC
  Anna marie . HIGH - doubles? IWEC
 
  captain gantu . HIGH - doubles? DNI
+_________________
+ 
+ komodo dragon
+ wolverine 
+ ferret
 
  more; [kintypes](https://fictotype.straw.page/hi)
 
