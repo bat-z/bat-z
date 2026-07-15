@@ -144,6 +144,8 @@ Sonic
 
 Ninjago
 
+The tick
+
 Monkie kid
 
 Incredibles
