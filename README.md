@@ -32,14 +32,15 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 ⠀⠀ ⠀⠀⠀ 𐂂 --⠀phone user probaly look weird on PC
 
 
-⠀⠀ ⠀⠀ ⠀ ⠀𐂂 --<details> <summary> REMINDER </summary>
+⠀⠀ ⠀⠀ ⠀ ⠀⠀ <details> 
+⠀⠀⠀ ⠀ <summary> REMINDER </summary>
 
-;I don't comment on ata except with close friends. I mostly use VPN for safetly lol. and if someone impersonating me made a comment on ata that isnt my friend, that is NOT me. Same with ppl copying my skins.
+⠀⠀⠀⠀ ⠀ ⠀-- I don't comment on ata except with ⠀⠀ ⠀⠀ close friends. I mostly use VPN for safetly lol. ⠀⠀⠀ ⠀ and if someone impersonating me made a ⠀⠀ ⠀⠀ ⠀⠀ comment on ata that isnt my friend, that is NOT ⠀⠀ me. Same with ppl copying my skins.
 
-⠀⠀ ⠀I’m not going to block anyone. Plsase stop bothering my friends. My friends and I don’t owe you any explanation.
+⠀⠀⠀⠀⠀ ⠀  ⠀I’m not going to block anyone. Plsase stop bothering my friends. My friends and I don’t owe you any explanation.
 
 
-</details>
+⠀⠀⠀⠀ ⠀ ⠀ </details>
 
 ⠀⠀ ⠀⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱⏔⏔⏔⏔⏔⏔⏔⏔
 ⠀ ⠀⠀⠀
