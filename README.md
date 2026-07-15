@@ -8,28 +8,28 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
   
 ⠀ ⠀ ⠀⠀ ⠀ ⠀  names! I have a lot;
    
- ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀   Hal, Sol, or Aster
+ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Hal, Sol, or Aster
  
- ⠀ ⠀ rest; Harv, Azro, Damian, Azrael,Thorne, koa, or Ghoul!
+ ⠀ 𐂂⠀- rest; Harv, Azro, Damian, Azrael,Thorne, koa, or Ghoul!
        ⠀ ⠀    
-      ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀Introverted 
+      ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀𐂂⠀  ⠀Introverted 
  ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀ ISTP
 ⠀ 
-⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀Furry, kemonomimi & alterhuman!
+⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ 𐂂 -- ⠀Furry, kemonomimi & alterhuman!
 
 
-⠀⠀ ⠀⠀⠀ ⠀⠀⠀phone user probaly look weird on PC
+⠀⠀ ⠀⠀⠀ 𐂂 --⠀phone user probaly look weird on PC
 
-extra; Personally, I don't comment on ata except with close friends. I mostly use VPN for safetly lol. and if someone impersonating me made a comment on ata that isnt my friend, that is NOT me. Same with ppl copying my skins. 
+𐂂 -- extra; Personally, I don't comment on ata except with close friends. I mostly use VPN for safetly lol. and if someone impersonating me made a comment on ata that isnt my friend, that is NOT me. Same with ppl copying my skins. 
 
 ⠀ ⠀⠀⠀⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱⏔⏔⏔⏔⏔⏔⏔⏔
 ⠀ ⠀⠀⠀
 
 
-I always stay close with my lovely friends ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀[erik/shwinn :3](https://github.com/shw1enholmes), [jimmy](https://github.com/jimmyiktT), [kirk](https://github.com/thedeerhasdied), [hiro](https://github.com/hirokojie), & [glitch](https://github.com/AGl1tchWasF0und)! i lazy to list pthers
+𐂂 -- I always stay close with my lovely friends ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀[erik/shwinn :3](https://github.com/shw1enholmes), [jimmy](https://github.com/jimmyiktT), [kirk](https://github.com/thedeerhasdied), [hiro](https://github.com/hirokojie), & [glitch](https://github.com/AGl1tchWasF0und)! i lazy to list pthers
  
-⠀ ⠀⠀ ⠀⠀ One of my cool friend,[erik](https://github.com/shw1enholmes) drew my oc! <img src="https://github.com/bat-z/bat-z/blob/79202cb94bfe929016ec25f37cd8b2985a6ca8e3/Untitled132_20260712130437.png" width
+⠀ ⠀⠀𐂂 -- ⠀ One of my cool friend,[erik](https://github.com/shw1enholmes) drew my oc! <img src="https://github.com/bat-z/bat-z/blob/79202cb94bfe929016ec25f37cd8b2985a6ca8e3/Untitled132_20260712130437.png" width
   ="70%">
   
 
