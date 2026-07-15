@@ -221,7 +221,30 @@ I block freely! If I don't like your vibe, I'll probably avoid or block you. or 
 <details>
 <summary>what are your interests?</summary>
 
+
 — I’m obsessed with paleontology, space, science, biology, histroy + others!
+
+
+-- cooking/baking! I also like cooking & baking shows
+
+
+-- Fav youtubers; Kwite, PolarCub, Kaden, Flamingo, & Funneh I still watch them
+
+
+— fantasy/mythical creatures lover. Knights are so cool
+
+
+—  drawing, painting, craft, etc.
+
+
+— action movies/shows
+
+
+— Reading, learning new stuff and languages!
+
+
+★ - OCS! OCS are very cool; one of my favorite parts to create. I also make transformer and superhero ocs. I like to yap bout my interests. If you get tired of it, please let me know👍.
+
 
 
 </details>
