@@ -140,6 +140,9 @@ DC fans(only in pt safe) unless friends
 
 4. ex friends & drama. Some of us do not accept their apology
    
+5. ppl who yume my main kins
+
+
 </details>
 
 <details>
