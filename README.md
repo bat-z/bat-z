@@ -176,8 +176,6 @@ Self/Yumeshippers community + nonsharing users. sorry, they scares me😞
 DC New 52. I don’t care if ppl liked it. We have different opinions 
 
 
-Heavy gore
-
 
 fake claimers
 
