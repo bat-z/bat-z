@@ -51,6 +51,8 @@ Jetfire/Skyfire . ID - doubles? IWEC
   
   Gus Sweettooth . ID - doubles? DNI
  
+Caine . ID -- doubles? DNIUF
+
  Autumn blaze . HIGH - doubles? DNI
 
 Luo xiaohei . ID - doubles? IWEC
@@ -58,6 +60,8 @@ Luo xiaohei . ID - doubles? IWEC
  Anna marie . HIGH - doubles? IWEC
 
  captain gantu . HIGH - doubles? DNI
+
+Brusha DW . Medium -- doubles? DNI
 _________________
  
  komodo dragon
