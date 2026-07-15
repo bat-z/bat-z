@@ -55,11 +55,23 @@ Luo xiaohei . ID - doubles? IWEC
 _________________
  
  komodo dragon
+ 
  wolverine 
+
  ferret
+
+ penguin
+
+ mouse
+
+ owl
+
+golden retriever
 
  more; [kintypes](https://fictotype.straw.page/hi)
 
+[ extra ](https://aniamls.straw.page)
+ 
  </details>
 
 
