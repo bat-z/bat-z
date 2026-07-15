@@ -26,7 +26,9 @@ I always stay close with my lovely friends [erik/shwinn :3](https://github.com/s
 
  <details>
 <summary>MAIN KINTYPES</summary>
- Booster gold . HIGH
+
+  
+  Booster gold . HIGH - doubles? DNI
 
   Hal Jordan . ID - doubles? DNI
  
