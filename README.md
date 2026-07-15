@@ -79,7 +79,9 @@ DC fans(only in pt safe) unless friends
 
 2. cch*rrypie/j-pawss & friends. Hoping he’s not around 
 
+3. Dean w, loki, joker, & jason todd fans
 
+   
 </details>
 
 <details>
