@@ -112,7 +112,7 @@ poly; Hal/barry/oliver, Harvey dent/Bruce wayne/Twoface, Batman/Ghostmaker/Catma
 
 rarepairs; Damian/Tai Pham, Dick grayson/Jericho, Jason Todd/Kid Devil, Guy/Lobo, Kori/Barbara, Diana/Dinah, Tim drake/Anarky,
 
-rest; wally/kyle,DinahBabs, Starfire/Donna troy, Dinah/Oliver, Hal/Carol, Clark Kent/Hal, Barry/Iris west, Kyle/Connor, Dick grayson/Roy, Djinn/Damian, Catman/deadshot, Green Arrow/Superman, Batman/Flash
+rest; wally/kyle,DinahBabs, Starfire/Donna troy, Dinah/Oliver, Hal/Carol, Clark Kent/Hal, Barry/Iris west, Kyle/Connor, Dick grayson/Roy, Djinn/Damian, Catman/deadshot, Green Arrow/Superman, Batman/Flash, Johnny storm/Peter parker,
 
 idk: Sinhal[use to dislike this ship, but kinda starting like them.], Guy/Arkillo[same with this one], Superman/Lex luthor[not a huge fan, bu its alr], Selina/Talia, Superman/Lobo, Lex luthor/Braniac
 
