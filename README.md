@@ -8,11 +8,11 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
   
 ⠀ ⠀ ⠀⠀ ⠀ ⠀  names! I have a lot;
    
- ⠀ ⠀ ⠀⠀ ⠀ ⠀   Hal or Hal
+ ⠀ ⠀ ⠀⠀ ⠀ ⠀   Hal or Aster
  
-  others; Harv, Aster, Azro, Damian, Azrael,Thorne, koa, or Ghoul!
+ ⠀ ⠀ ⠀ rest; Harv, Azro, Damian, Azrael,Thorne, koa, or Ghoul!
        ⠀ ⠀    ⠀Introverted 
- ⠀ ⠀ ⠀⠀ ⠀   ISTP
+ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀  ISTP
 ⠀     Furry, kemonomimi & alterhuman!
 ______________________
 I always stay close with my lovely friends [erik/shwinn :3](https://github.com/shw1enholmes), [jimmy](https://github.com/jimmyiktT), [kirk](https://github.com/thedeerhasdied), [hiro](https://github.com/hirokojie), & [glitch](https://github.com/AGl1tchWasF0und)! i lazy to list pthers
