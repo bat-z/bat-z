@@ -12,7 +12,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
  
  ⠀ ⠀ ⠀ rest; Harv, Azro, Damian, Azrael,Thorne, koa, or Ghoul!
        ⠀ ⠀    
-      ⠀ ⠀ ⠀⠀  ⠀Introverted 
+      ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀Introverted 
  ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ISTP
 ⠀ 
