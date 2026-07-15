@@ -18,7 +18,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 ⠀ 
 ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀Furry, kemonomimi & alterhuman!
 
-extra; Personally, I don't comment on  random ppl ata, except with close friends. I mostly use VPN for safetly. and if someone were to make a comment on random ata pretending to be me, that is NOT me. Same with ppl copying my skins. 
+extra; Personally, I don't comment on ata except with close friends. I mostly use VPN for safetly lol. and if someone were to make a comment on random ata pretending to be me, that is NOT me. Same with ppl copying my skins. 
 ______________________
 ⠀ ⠀⠀⠀ I always stay close with my lovely friends ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀[erik/shwinn :3](https://github.com/shw1enholmes), [jimmy](https://github.com/jimmyiktT), [kirk](https://github.com/thedeerhasdied), [hiro](https://github.com/hirokojie), & [glitch](https://github.com/AGl1tchWasF0und)! i lazy to list pthers
  
