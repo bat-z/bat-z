@@ -288,29 +288,29 @@ Animal hospital
 
 
 
-★  loud & nasty noises
+3.  loud & nasty noises
 
 
-anti vs pro/dark/comship wars. No, i don’t like dark/proshippers. I also don’t want to be labeled as anti ;-;
+4. anti vs pro/dark/comship wars. No, i don’t like dark/proshippers. I also don’t want to be labeled as anti ;-;
 
 
-demonizing BPD and NPD.
+ 5. drama. im fine with ppl talking about it just dont drag me in.
+
+   
+6. demonizing BPD and NPD.
 
 
-tone tags. Some of them are fine 
+7. tone tags. Some of them are fine 
 
 
-The word "kinnie," I don't know it gives a mixed feeling and I don't like it. I have no problem with the fictionkin community using tho
+8. The word "kinnie," I don't know it gives a mixed feeling and I don't like it. I have no problem with the fictionkin community using tho
 
 
-Self/Yumeshippers community + nonsharing users. sorry, they scares me😞
+9. Self/Yumeshippers community + nonsharing users. sorry, they scares me😞
 
 
-DC New 52. I don’t care if ppl liked it. We have different opinions 
+10. DC New 52. I don’t care if ppl liked it. We have different opinions 
 
-
-
-fake claimers
 
 
 
