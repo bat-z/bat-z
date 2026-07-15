@@ -24,7 +24,39 @@ I always stay close with my lovely friends [erik/shwinn :3](https://github.com/s
 <img src="https://github.com/bat-z/bat-z/blob/74c12cc1ee052e6cf57ac65a27636f746a12634b/IMG_5582.gif" width="40%"> <img src="https://github.com/bat-z/bat-z/blob/9fa6e7e077ebc9174b977093441d556bcb9b0135/IMG_5585.gif" width="40%"> <img src="https://github.com/bat-z/bat-z/blob/1145d2d1952aac4e274b4c22cdd8aa82159a51d3/IMG_5581.gif" width="40%">
 
 
+ <details>
+<summary>main kins</summary>
+ Booster gold . HIGH
 
+  Hal Jordan . ID - doubles? DNI
+ 
+ Damian Wayne . ID - doubles? DNI
+  Harvey dent/Two face . ID - doubles? IWEC
+  
+Music meister . HIGH - doubles? IWEC
+
+Angel xmen . HIGH - doubles? IWEC
+
+Gamma jack . High - doubles? IWEC
+
+Jetfire/Skyfire . ID - doubles? IWEC
+  
+  Gus Sweettooth . ID - doubles? DNI
+ 
+ Autumn blaze . HIGH - doubles? IWEC
+
+Luo xiaohei . ID - doubles? IWEC
+ 
+ Anna marie . HIGH - doubles? IWEC
+
+ captain gantu . HIGH - doubles? DNI
+
+ more; [kintypes](https://fictotype.straw.page/hi)
+
+ </details>
+
+
+ 
  <details>                     
 <summary>BEFORE YOU INTERACT! !</summary>
 
@@ -93,37 +125,6 @@ I block freely! If I don't like your vibe, I'll probably avoid or block you. or 
 
 
 
-
- <details>
-<summary>main kins</summary>
- Booster gold . HIGH
-
-  Hal Jordan . ID - doubles? DNI
- 
- Damian Wayne . ID - doubles? DNI
-  Harvey dent/Two face . ID - doubles? IWEC
-  
-Music meister . HIGH - doubles? IWEC
-
-Angel xmen . HIGH - doubles? IWEC
-
-Gamma jack . High - doubles? IWEC
-
-Jetfire/Skyfire . ID - doubles? IWEC
-  
-  Gus Sweettooth . ID - doubles? DNI
- 
- Autumn blaze . HIGH - doubles? IWEC
-
-Luo xiaohei . ID - doubles? IWEC
- 
- Anna marie . HIGH - doubles? IWEC
-
- captain gantu . HIGH - doubles? DNI
-
- 
-
- </details>
 
 <details>
 <summary>what are your interests?</summary>
