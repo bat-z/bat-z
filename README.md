@@ -51,7 +51,7 @@ Jetfire/Skyfire . ID - doubles? IWEC
   
   Gus Sweettooth . ID - doubles? DNI
  
- Autumn blaze . HIGH - doubles? IWEC
+ Autumn blaze . HIGH - doubles? DNI
 
 Luo xiaohei . ID - doubles? IWEC
  
