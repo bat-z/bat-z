@@ -11,7 +11,8 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
  ⠀ ⠀ ⠀⠀ ⠀ ⠀   Hal or Aster
  
  ⠀ ⠀ ⠀ rest; Harv, Azro, Damian, Azrael,Thorne, koa, or Ghoul!
-       ⠀ ⠀    ⠀Introverted 
+       ⠀ ⠀    
+      ⠀ ⠀ ⠀⠀  ⠀Introverted 
  ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀  ISTP
 ⠀     Furry, kemonomimi & alterhuman!
 ______________________
