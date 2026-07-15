@@ -153,6 +153,36 @@ more in here;
 
 2. Actual gore and fictional gore scare the shit out of me. 
 
+
+
+★  loud & nasty noises
+
+
+anti vs pro/dark/comship wars. No, i don’t like dark/proshippers. I also don’t want to be labeled as anti ;-;
+
+
+demonizing BPD and NPD.
+
+
+tone tags. Some of them are fine 
+
+
+The word "kinnie," I don't know it gives a mixed feeling and I don't like it. I have no problem with the fictionkin community using tho
+
+
+Self/Yumeshippers community + nonsharing users. sorry, they scares me😞
+
+
+DC New 52. I don’t care if ppl liked it. We have different opinions 
+
+
+Heavy gore
+
+
+fake claimers
+
+
+
 </details>
 
  <details>
