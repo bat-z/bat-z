@@ -92,7 +92,7 @@ I block freely! If I don't like your vibe, I'll probably avoid or block you. or 
 
 </details>
 
-
+</details>
 <summary>what are your interests? !</summary>
 
 ➤ 1. I’m obsessed with paleontology, space, science, biology, histroy + others!
@@ -101,7 +101,7 @@ I block freely! If I don't like your vibe, I'll probably avoid or block you. or 
 
 
 
-
+</details>
 
 <summary>what are your ships? !</summary>
 
