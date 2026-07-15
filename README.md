@@ -21,7 +21,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
 ⠀⠀ ⠀⠀⠀ 𐂂 --⠀phone user probaly look weird on PC
 
-𐂂 -- extra; Personally, I don't comment on ata except with close friends. I mostly use VPN for safetly lol. and if someone impersonating me made a comment on ata that isnt my friend, that is NOT me. Same with ppl copying my skins. 
+𐂂 -- REMINDER; Personally, I don't comment on ata except with close friends. I mostly use VPN for safetly lol. and if someone impersonating me made a comment on ata that isnt my friend, that is NOT me. Same with ppl copying my skins. 
 
 ⠀ ⠀⠀⠀⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱⏔⏔⏔⏔⏔⏔⏔⏔
 ⠀ ⠀⠀⠀
