@@ -92,6 +92,39 @@ I block freely! If I don't like your vibe, I'll probably avoid or block you. or 
 </details>
 
 
+
+
+ <details>
+<summary>main kins</summary>
+ Booster gold . HIGH
+
+  Hal Jordan . ID - doubles? DNI
+ 
+ Damian Wayne . ID - doubles? DNI
+  Harvey dent/Two face . ID - doubles? IWEC
+  
+Music meister . HIGH - doubles? IWEC
+
+Angel xmen . HIGH - doubles? IWEC
+
+Gamma jack . High - doubles? IWEC
+
+Jetfire/Skyfire . ID - doubles? IWEC
+  
+  Gus Sweettooth . ID - doubles? DNI
+ 
+ Autumn blaze . HIGH - doubles? IWEC
+
+Luo xiaohei . ID - doubles? IWEC
+ 
+ Anna marie . HIGH - doubles? IWEC
+
+ captain gantu . HIGH - doubles? DNI
+
+ 
+
+ </details>
+
 <details>
 <summary>what are your interests?</summary>
 
