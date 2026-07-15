@@ -16,8 +16,11 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pron; they / she / any
       ⠀ ⠀ ⠀⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀
-⠀⠀ ⠀ ⠀ ⠀ ⠀<img src="https://github.com/bat-z/bat-z/blob/ffd01c67dd35cce9092d6eda8fc0ef5161f941bc/IMG_6034.jpeg" width="10%">
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀
+⠀⠀ ⠀ ⠀ ⠀ ⠀<img src="https://github.com/bat-z/bat-z/blob/ffd01c67dd35cce9092d6eda8fc0ef5161f941bc/IMG_6034.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/fadb932297e5acfcbb8275a0a374afdb1804c8a0/IMG_6038.jpeg" width="10%">
+⠀ ⠀ ⠀ ⠀
+
+
+⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀
 
 ⠀      ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀𐂂⠀  ⠀Introverted 
  ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ 
