@@ -137,6 +137,7 @@ DC fans(only in pt safe) unless friends
 
 3. Dean w, loki, joker, Tailgate, & jason todd fans
 
+4. ex friends & drama. Some of us do not accept their apology
    
 </details>
 
