@@ -89,23 +89,22 @@ DC fans(only in pt safe) unless friends
 
 I block freely! If I don't like your vibe, I'll probably avoid or block you. or if its a double
 
-
 </details>
 
-</details>
-<summary>what are your interests? !</summary>
 
-➤ 1. I’m obsessed with paleontology, space, science, biology, histroy + others!
+<details>
+<summary>what are your interests?</summary>
 
-</details>
-
+— I’m obsessed with paleontology, space, science, biology, histroy + others!
 
 
 </details>
 
-<summary>what are your ships? !</summary>
 
-If yall dont like it then dont int or just tell me not to bring it up. shrugs
+<details>
+<summary>what are your ships?</summary>
+
+-- If yall dont like it then dont int or just tell me not to bring it up. shrugs
 
 mains: Halbarry, Harvey Dent/Bruce Wayne, Boostle, Hal/Oliver, Captain cold/heatwave, Captain cold/Flash CW, Barry allen/Oliver queen CW,
 
@@ -116,6 +115,7 @@ rarepairs; Damian/Tai Pham, Dick grayson/Jericho, Jason Todd/Kid Devil, Guy/Lobo
 rest; wally/kyle,DinahBabs, Starfire/Donna troy, Dinah/Oliver, Hal/Carol, Clark Kent/Hal, Barry/Iris west, Kyle/Connor, Dick grayson/Roy, Djinn/Damian, Catman/deadshot, Green Arrow/Superman, Batman/Flash
 
 idk: Sinhal[use to dislike this ship, but kinda starting like them.], Guy/Arkillo[same with this one], Superman/Lex luthor[not a huge fan, bu its alr], Selina/Talia, Superman/Lobo, Lex luthor/Braniac
+
 
 </details>
 
