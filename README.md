@@ -35,6 +35,8 @@ ______________________
   
   Booster gold . HIGH - doubles? DNI
 
+  Doom slayer . ID - doubles? DNI
+  
   Hal Jordan . ID - doubles? DNI
  
  Damian Wayne . ID - doubles? DNI
