@@ -147,77 +147,6 @@ more in here;
 </details>
 
 
- <details>
-<summary>DISLIKES !</summary>
-
-1. I'm very afraid of heights
-
-2. Actual gore and fictional gore scare the shit out of me. 
-
-
-
-★  loud & nasty noises
-
-
-anti vs pro/dark/comship wars. No, i don’t like dark/proshippers. I also don’t want to be labeled as anti ;-;
-
-
-demonizing BPD and NPD.
-
-
-tone tags. Some of them are fine 
-
-
-The word "kinnie," I don't know it gives a mixed feeling and I don't like it. I have no problem with the fictionkin community using tho
-
-
-Self/Yumeshippers community + nonsharing users. sorry, they scares me😞
-
-
-DC New 52. I don’t care if ppl liked it. We have different opinions 
-
-
-
-fake claimers
-
-
-
-</details>
-
- <details>
-<summary>THIN ICS !</summary>
-
-DC fans(only in pt safe) unless friends
-
-</details>
-
-<details>
-<summary>DNI !</summary>
-
-1. spn, gorillaz, MLP, COD, & Batfam/superfam fanbase unless friends
-
-
-2. cch*rrypie/j-pawss & friends. Hoping he’s not around 
-
-3. Dean w, loki, joker, Tailgate, & jason todd fans
-
-4. ex friends & drama. Some of us do not accept their apology
-   
-5. ppl who yume with Damian, Luo xiaohei, & Gus. the rest of my kins? IWEC
-
-
-</details>
-
-<details>
-<summary>EXTRA !</summary>
-
-I block freely! If I don't like your vibe, I'll probably avoid or block you. or if its a double
-
-</details>
-
-
-
-
 <details>
 <summary>what are your interests?</summary>
 
@@ -349,6 +278,75 @@ Animal hospital
 
 
 </details>
+
+ <details>
+<summary>DISLIKES !</summary>
+
+1. I'm very afraid of heights
+
+2. Actual gore and fictional gore scare the shit out of me. 
+
+
+
+★  loud & nasty noises
+
+
+anti vs pro/dark/comship wars. No, i don’t like dark/proshippers. I also don’t want to be labeled as anti ;-;
+
+
+demonizing BPD and NPD.
+
+
+tone tags. Some of them are fine 
+
+
+The word "kinnie," I don't know it gives a mixed feeling and I don't like it. I have no problem with the fictionkin community using tho
+
+
+Self/Yumeshippers community + nonsharing users. sorry, they scares me😞
+
+
+DC New 52. I don’t care if ppl liked it. We have different opinions 
+
+
+
+fake claimers
+
+
+
+</details>
+
+ <details>
+<summary>THIN ICS !</summary>
+
+DC fans(only in pt safe) unless friends
+
+</details>
+
+<details>
+<summary>DNI !</summary>
+
+1. spn, gorillaz, MLP, COD, & Batfam/superfam fanbase unless friends
+
+
+2. cch*rrypie/j-pawss & friends. Hoping he’s not around 
+
+3. Dean w, loki, joker, Tailgate, & jason todd fans
+
+4. ex friends & drama. Some of us do not accept their apology
+   
+5. ppl who yume with Damian, Luo xiaohei, & Gus. the rest of my kins? IWEC
+
+
+</details>
+
+<details>
+<summary>EXTRA !</summary>
+
+I block freely! If I don't like your vibe, I'll probably avoid or block you. or if its a double
+
+</details>
+
 
 
 
