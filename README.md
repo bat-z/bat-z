@@ -333,8 +333,9 @@ DC fans(only in pt safe) unless friends
 
 3. Dean w, loki, joker, Tailgate, & jason todd fans
 
-4. ex friends & drama. Some of us do not accept their apology
+4. ex friends & drama. 
    
+
 5. ppl who yume with Damian, Luo xiaohei, & Gus. the rest of my kins? IWEC
 
 
