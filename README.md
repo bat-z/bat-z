@@ -8,7 +8,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
   
 ⠀ ⠀ ⠀⠀ ⠀ ⠀  names! I have a lot;
    
- ⠀ ⠀ ⠀⠀ ⠀ ⠀   Hal or Aster
+ ⠀ ⠀ ⠀⠀ ⠀ ⠀   Hal, Sol, or Aster
  
  ⠀ ⠀ ⠀ rest; Harv, Azro, Damian, Azrael,Thorne, koa, or Ghoul!
        ⠀ ⠀    
