@@ -15,11 +15,10 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
     
   pron; they / she / any
       ⠀ ⠀ ⠀⠀ ⠀ ⠀ 
- ⠀ 
- ⠀ ⠀⠀ ⠀ ⠀ ⠀< src="https://github.com/bat-z/bat-z/blob/ffd01c67dd35cce9092d6eda8fc0ef5161f941bc/IMG_6034.jpeg" width="10%"> ⠀⠀ 
 ⠀ ⠀ ⠀
+<img src="https://github.com/bat-z/bat-z/blob/ffd01c67dd35cce9092d6eda8fc0ef5161f941bc/IMG_6034.jpeg" width="10%">
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀ ISTP
 ⠀      ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀𐂂⠀  ⠀Introverted 
  ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀ ISTP
