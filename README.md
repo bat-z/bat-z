@@ -139,6 +139,10 @@ golden retriever
 
 9.  I have bad sxious/health i will mostly leave ponytown or any online to taks multi breaks
 
+
+10. struggle with social cues
+
+
 more in here;
 
 
