@@ -344,8 +344,7 @@ Batfam fans unless we friends
 <details>
 <summary>DNI !</summary>
 
-1. spn, gorillaz, MLP, & COD fanbase unless friends
-
+1. spn, gorillaz, MLP, COD, Boyfriend To Death, DW, creepypasta, TADC fanbase dni
 
 2. cch*rrypie/j-pawss & friends. Hoping he’s not around and pleas do NOT mention him.
 
