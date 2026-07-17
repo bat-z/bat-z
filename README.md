@@ -24,7 +24,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
       
  ⠀𐂂⠀ --Biracial!(black n brown ) . Puerto Rico ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ 
 ⠀ ⠀   ⠀ disabled & mental illness⠀
-   ⠀ ⠀       ⠀<img src="https://github.com/bat-z/bat-z/blob/ffd01c67dd35cce9092d6eda8fc0ef5161f941bc/IMG_6034.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/fadb932297e5acfcbb8275a0a374afdb1804c8a0/IMG_6038.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/37157dec572a85af58c121e0f3e9849e3e73a914/IMG_6039.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/686d9b625c107b7db06e1e673eeb7c3c7949e366/IMG_6047.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/48d8dd09737124f502e2f9642d388c00e66ea141/IMG_6048.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/6df73d52fb2e667bae5a2609ace8eb98f05751a1/Untitled288_20260715052211.png" width="20%">
+   ⠀⠀ ⠀      ⠀  ⠀  ⠀  ⠀ ⠀      ⠀  ⠀     ⠀  ⠀     ⠀<img src="https://github.com/bat-z/bat-z/blob/ffd01c67dd35cce9092d6eda8fc0ef5161f941bc/IMG_6034.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/fadb932297e5acfcbb8275a0a374afdb1804c8a0/IMG_6038.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/37157dec572a85af58c121e0f3e9849e3e73a914/IMG_6039.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/686d9b625c107b7db06e1e673eeb7c3c7949e366/IMG_6047.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/48d8dd09737124f502e2f9642d388c00e66ea141/IMG_6048.jpeg" width="10%"><img src="https://github.com/bat-z/bat-z/blob/6df73d52fb2e667bae5a2609ace8eb98f05751a1/Untitled288_20260715052211.png" width="20%">
 
 ⠀ ⠀ ⠀ ⠀
 
