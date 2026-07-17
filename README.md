@@ -129,7 +129,7 @@ Luo xiaohei . ID - doubles? IWEC
  
  Anna marie . HIGH - doubles? IWEC
 
- captain gantu . HIGH - doubles? DNI
+ captain gantu . HIGH - doubles? IWEC
 
 Brusha DW . Medium -- doubles? DNI
 _________________
