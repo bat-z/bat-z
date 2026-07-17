@@ -22,7 +22,8 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pron; they / she / any
       ⠀ 
       
- ⠀ ⠀ ⠀ ⠀𐂂⠀ --⠀  Biracial! [ black n brown ]⠀ ⠀ ⠀ ⠀ ⠀ ⠀Puerto Rico || disabled & mental illness⠀
+ ⠀𐂂⠀ --Biracial!(black n brown ) . Puerto Rico ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ 
+⠀ ⠀  ⠀  disabled & mental illness⠀
       
       
       ⠀ ⠀⠀ ⠀ ⠀ 
