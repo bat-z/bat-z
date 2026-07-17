@@ -6,7 +6,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
 <img src="https://raw.githubusercontent.com/bat-z/bat-z/f7cd7e36fa11d50be4181d808a29dcd98e55c055/%E0%A3%AA_%20%E2%81%BA%20doomguy.jpeg" width="50%"><img src="https://github.com/bat-z/StaticSh0ck/blob/94fab8e6e4d33cff882e482d776c3f81fd773029/914e5954b57ed5d26f282858805cf363.jpg" width="30%">
   
-⠀ ⠀ ⠀𐂂⠀  --⠀  names! I have a lot;
+⠀ ⠀ ⠀𐂂⠀  --⠀  names! I have multi;
    
  ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Hal, Sol, or Aster
  
@@ -33,6 +33,43 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 ⠀⠀ ⠀⠀⠀ 𐂂 --⠀phone user probaly look weird on PC
 
 
+
+ 
+ <details>                     
+<summary>BEFORE YOU INTERACT! !</summary>
+
+ 1. I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when comes with new people. I don’t want to come across as a annoying or that I'm botherin anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
+
+
+2. I am a very sensitive person and overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
+
+3. Please check my kintypes list for doubles in pronouncc! to avoid accidental awkward situations 
+
+4. Be aware! This person is a survivor of abuse/SA/Groomings. Please be careful with what you say. I’m usually not bothered by sexually explicit jokes or some uncomfortle jokes, but it’s something to keep in mind. I do have my own triggers, but I don't bother telling anyone unless we're, like, very close...? I thought it would sound ridiculous lol.
+
+5.  Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way tell me! I will correct myself and then apologize. Don't be afraid to point it out to me like I said, I’m not afraid for my own mistakes 
+
+6. I tend to get very clingy to the people I feel comfortable with, and I end up being annoying if you don't like that, tell me.
+
+ 7. I don't really like large crowds also if it's a large group, I usually walk away.
+
+8. Batfam fans are a different story. I'm actually pretty scared to interact with DC fans on safe,;-; like most of them are freinds with my ex friends, and it gets really awkward. I tryin to avoid them
+
+9.  I have bad sxious/health i will mostly leave ponytown or any online to taks multi breaks
+
+
+10. struggle with social cues
+
+
+more in here;
+
+
+[BEFORE YOU INTERACT](https://oldmenyaoislop.straw.page/beforeyouinteract)
+
+</details>
+
+
+
 ⠀⠀ ⠀⠀ ⠀ ⠀⠀ <details> 
 ⠀⠀⠀ ⠀ <summary> REMINDER </summary>
 
@@ -47,7 +84,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 ⠀ ⠀⠀⠀
 
 
-𐂂 -- I always stay close with my lovely friends ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀[erik/shwinn :3](https://github.com/shw1enholmes), [office/billy](https://github.com/dinosaursawesome), [jimmy](https://github.com/jimmyiktT), [kirk](https://github.com/thedeerhasdied), [hiro](https://github.com/hirokojie), & [glitch](https://github.com/AGl1tchWasF0und)! i lazy to list pthers
+𐂂 -- I always stay close with my lovely friends ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀[erik/shwinn :3](https://github.com/shw1enholmes), [office/billy](https://github.com/dinosaursawesome), [jimmy](https://github.com/jimmyiktT), [kirk](https://github.com/thedeerhasdied), [hiro](https://github.com/hirokojie), & [glitch](https://github.com/AGl1tchWasF0und)! + those who dont have a git! i lazy to list pthers
  
 ⠀ ⠀⠀𐂂 -- ⠀ One of my cool friend,[erik](https://github.com/shw1enholmes) drew my oc! <img src="https://github.com/bat-z/bat-z/blob/79202cb94bfe929016ec25f37cd8b2985a6ca8e3/Untitled132_20260712130437.png" width
   ="70%">
@@ -60,6 +97,8 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
  <details>
 <summary>MAIN KINTYPES</summary>
+
+  I'm aware I dont own the characters🫡
 
   
   Booster gold . HIGH - doubles? DNI
@@ -109,6 +148,9 @@ _________________
 
 golden retriever
 
+
+caiman lizards
+
  more; [kintypes](https://fictotype.straw.page/hi)
 
 [ extra ](https://aniamls.straw.page)
@@ -116,39 +158,7 @@ golden retriever
  </details>
 
 
- 
- <details>                     
-<summary>BEFORE YOU INTERACT! !</summary>
 
- 1. I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when comes with new people. I don’t want to come across as a annoying or that I'm botherin anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
-
-
-2. I am a very sensitive person and overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
-
-3. Please check my kintypes list for doubles in pronouncc! to avoid accidental awkward situations 
-
-4. Be aware! This person is a survivor of abuse/SA/Groomings. Please be careful with what you say. I’m usually not bothered by sexually explicit jokes or some uncomfortle jokes, but it’s something to keep in mind. I do have my own triggers, but I don't bother telling anyone unless we're, like, very close...? I thought it would sound ridiculous lol.
-
-5.  Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way tell me! I will correct myself and then apologize. Don't be afraid to point it out to me like I said, I’m not afraid for my own mistakes 
-
-6. I tend to get very clingy to the people I feel comfortable with, and I end up being annoying if you don't like that, tell me.
-
- 7. I don't really like large crowds also if it's a large group, I usually walk away.
-
-8. Batfam fans are a different story. I'm actually pretty scared to interact with DC fans on safe,;-; like most of them are freinds with my ex friends, and it gets really awkward. I tryin to avoid them
-
-9.  I have bad sxious/health i will mostly leave ponytown or any online to taks multi breaks
-
-
-10. struggle with social cues
-
-
-more in here;
-
-
-[BEFORE YOU INTERACT](https://oldmenyaoislop.straw.page/beforeyouinteract)
-
-</details>
 
 
 <details>
@@ -288,17 +298,15 @@ Animal hospital
 
 1. I'm very afraid of heights
 
-2. Actual gore and fictional gore scare the shit out of me. 
+2. heavy gore and fictional gore scare the shit out of me. 
 
 
 
 3.  loud & nasty noises
 
 
-4. anti vs pro/dark/comship wars. No, i don’t like dark/proshippers. I also don’t want to be labeled as anti ;-;
+4. anti vs pro/dark/comship wars. No, i am not a dark/proshipper. I also don’t want to be labeled as anti ;-;
 
-
- 5. drama. im fine with ppl talking about it just dont drag me in.
 
    
 6. demonizing BPD and NPD.
@@ -323,24 +331,25 @@ Animal hospital
  <details>
 <summary>THIN ICS !</summary>
 
-DC fans(only in pt safe) unless friends
+Batfam fans unless we friends
 
 </details>
 
 <details>
 <summary>DNI !</summary>
 
-1. spn, gorillaz, MLP, COD, & Batfam/superfam fanbase unless friends
+1. spn, gorillaz, MLP, & COD fanbase unless friends
 
 
-2. cch*rrypie/j-pawss & friends. Hoping he’s not around 
+2. cch*rrypie/j-pawss & friends. Hoping he’s not around and pleas do NOT mention him.
 
-3. Dean w, loki, joker, Tailgate, & jason todd fans
+3. Dean w, loki, joker, Tailgate, & jason todd fans. Yea, this sounds ridiculous. I like some of the characters, but I can't stand the fans sorry.
 
-4. ex friends
+
+4. Most of my ex friends
    
 
-5. ppl who yume with Damian, Luo xiaohei, & Gus. the rest of my kins? IWEC
+5. ppl who yume with Damian, Luo xiaohei, & Gus. the rest of my kins? I dont care just IWEC
 
 
 6. benstiel & his friends
