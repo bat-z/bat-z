@@ -359,7 +359,7 @@ MLP fanbase dniuf
 
 2. cch*rrypie/j-pawss & friends. Hoping he’s not around and pleas do NOT mention him.
 
-3. Dean w, loki, joker, Tailgate, & jason todd fans. Yea, this sounds ridiculous. I like some of the characters, but I can't stand the fans sorry.
+3. Dean w(any charcters that he plays like solider boy), loki, the joker, Tailgate, & jason todd fans. Yea, this sounds ridiculous. I like some of the characters, but I can't stand the fans sorry.
 
 
 4. Most of my ex friends
