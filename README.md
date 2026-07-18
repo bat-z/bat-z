@@ -12,7 +12,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
 <img src="https://raw.githubusercontent.com/bat-z/bat-z/f7cd7e36fa11d50be4181d808a29dcd98e55c055/%E0%A3%AA_%20%E2%81%BA%20doomguy.jpeg" width="50%"><img src="https://github.com/bat-z/StaticSh0ck/blob/94fab8e6e4d33cff882e482d776c3f81fd773029/914e5954b57ed5d26f282858805cf363.jpg" width="30%">
   
-⠀ ⠀ ⠀𐂂⠀  --⠀  names! I have multi;
+⠀ ⠀ ⠀𐂂⠀  --⠀  names! I have multiple ;
    
  ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Hal, Sol, or Aster
  
@@ -38,7 +38,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ 𐂂 -- ⠀Furry, kemonomimi & alterhuman!
 
 
-⠀⠀ ⠀⠀⠀ 𐂂 --⠀phone user probaly look weird on PC
+⠀⠀ ⠀⠀⠀ 𐂂 --⠀phone user probably looks weird on PC
 
 
 
@@ -46,27 +46,25 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
  <details>                     
 <summary>BEFORE YOU INTERACT! !</summary>
 
- 1. I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when comes with new people. I don’t want to come across as a annoying or that I'm botherin anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
+ 1. I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when comes with new people. I don’t want to come across as annoying or as if I'm botherin anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
 
 
-2. I am a very sensitive person and overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
+2. I am a very sensitive person and an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
 
-3. Please check my kintypes list for doubles in pronouncc! to avoid accidental awkward situations. If you feel uncomfortable with me kinfirm the bad people please do not int.  
+3. Please check my kintypes list for doubles in pronouncc! To avoid accidental awkward situations. If you feel uncomfortable with me confirming the bad people/overhated characters, please do not int.  
 
-4. Be aware! This person is a survivor of abuse/SA/Groomings. Please be careful with what you say. I’m usually not bothered by sexually explicit jokes or some uncomfortle jokes, but it’s something to keep in mind. I do have my own triggers, but I don't bother telling anyone unless we're, like, very close...? I thought it would sound ridiculous lol.
+4. Be aware! This person is a survivor of abuse/SA/Groomings. Please be careful with what you say. I’m usually not bothered by sexually explicit jokes or some uncomfortable jokes, except SH or rape jokes, but it’s something to keep in mind. I do have my own triggers, but I don't bother telling anyone unless we're, like, very close...? I thought it would sound ridiculous lol.
 
-5.  Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way tell me! I will correct myself and then apologize. Don't be afraid to point it out to me like I said, I’m not afraid for my own mistakes 
+5.  I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
 
 6. I tend to get very clingy to the people I feel comfortable with, and I end up being annoying if you don't like that, tell me.
 
- 7. I don't really like large crowds also if it's a large group, I usually walk away.
+ 7. I don't really like large crowds. Also if it's a large group, I usually walk away.
 
-8. Batfam fans are a different story. I'm actually pretty scared to interact with DC fans on safe,;-; like most of them are freinds with my ex friends, and it gets really awkward. I tryin to avoid them
-
-9.  I have bad sxious/health i will mostly leave ponytown or any online to taks multi breaks
+ 8. I have bad sxious/health i will mostly stay away from Ponytown or any online sometimes without warning.
 
 
-10. struggle with social cues
+   
 
 
 more in here;
