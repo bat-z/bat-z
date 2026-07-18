@@ -51,7 +51,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
 2. I am a very sensitive person and overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
 
-3. Please check my kintypes list for doubles in pronouncc! to avoid accidental awkward situations. If you feel uncomfortable with me kinfirm the victims or the bad people please do not int.  
+3. Please check my kintypes list for doubles in pronouncc! to avoid accidental awkward situations. If you feel uncomfortable with me kinfirm the bad people please do not int.  
 
 4. Be aware! This person is a survivor of abuse/SA/Groomings. Please be careful with what you say. I’m usually not bothered by sexually explicit jokes or some uncomfortle jokes, but it’s something to keep in mind. I do have my own triggers, but I don't bother telling anyone unless we're, like, very close...? I thought it would sound ridiculous lol.
 
