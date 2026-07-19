@@ -207,15 +207,15 @@ caiman lizards
 
 -- If yall dont like it then dont int or just tell me not to bring it up. shrugs
 
-mains: Halbarry, Harvey Dent/Bruce Wayne, Boostle, Hal/Oliver, Captain cold/heatwave, Captain cold/Flash CW, Barry allen/Oliver queen CW,
+mains: Halbarry, Harvey Dent/Bruce Wayne, Boostle, Hal/Oliver, Captain cold/heatwave, Captain cold/Flash CW, Barry allen/Oliver queen CW, more
 
-poly; Hal/barry/oliver, Harvey dent/Bruce wayne/Twoface, Batman/Ghostmaker/Catman, Hal/Barry/Iris, sinestro/carol/hal
+poly; Hal/barry/oliver, Harvey dent/Bruce wayne/Twoface, Batman/Ghostmaker/Catman, Hal/Barry/Iris, sinestro/carol/hal, & more
 
-rarepairs; Damian/Tai Pham, Dick grayson/Jericho, Jason Todd/Kid Devil, Guy/Lobo, Kori/Barbara, Diana/Dinah, Tim drake/Anarky,
+rarepairs; Damian/Tai Pham, Dick grayson/Jericho, Jason Todd/Kid Devil, Guy/Lobo, Kori/Barbara, Diana/Dinah, Tim drake/Anarky, august heart/barry allen, more+
 
 rest; wally/kyle,DinahBabs, Starfire/Donna troy, Dinah/Oliver, Hal/Carol, Clark Kent/Hal, Barry/Iris west, Kyle/Connor, Dick grayson/Roy, Djinn/Damian, Catman/deadshot, Green Arrow/Superman, Batman/Flash, Johnny storm/Peter parker,
 
-idk: Sinhal[use to dislike this ship, but kinda starting like them.], Guy/Arkillo[same with this one], Superman/Lex luthor[not a huge fan, bu its alr], Selina/Talia, Superman/Lobo, Lex luthor/Braniac
+idk: Sinhal[use to dislike this ship, but kinda starting like them.], Guy/Arkillo[same with this one], Superman/Lex luthor[not a huge fan, bu its alr], Selina/Talia, Superman/Lobo, Lex luthor/Braniac, & more
 
 
 </details>
