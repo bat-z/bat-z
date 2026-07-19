@@ -139,6 +139,9 @@ Luo xiaohei . ID - doubles? IWEC
  captain gantu . HIGH - doubles? IWEC
 
 Brusha DW . Medium -- doubles? DNI
+
+Sprout DW . Medium -- doubles? IWEC
+
 _________________
  
  komodo dragon
@@ -353,7 +356,7 @@ Batfam fans unless we friends
 batcest
 
 
-1. spn, gorillaz, COD, Boyfriend To Death, DW, creepypasta, TADC fanbase dni
+1. spn, gorillaz, COD, Boyfriend To Death, creepypasta, TADC fanbase dni
 
 
 MLP fanbase dniuf
