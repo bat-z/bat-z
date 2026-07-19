@@ -335,6 +335,8 @@ Animal hospital
 
 11. people who have problems with friends, unless they have done something uncomfortable/upset someone.
 
+12. Joker and Batjokes (I don't like him or the ship in any universe thats include Lego Batman and Telltale. His existence annoys me).
+
 </details>
 
  <details>
