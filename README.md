@@ -63,6 +63,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
  8. I have bad sxious/health i will mostly stay away from Ponytown or any online sometimes without warning.
 
+9. If I friend/interact with a problematic person, let me know! I rarely check others profile before reposting their content or become friends with them.
 
    
 
@@ -332,7 +333,7 @@ Animal hospital
 10. DC New 52. I don’t care if ppl liked it. We have different opinions 
 
 
-
+11. people who have problems with friends, unless they have done something uncomfortable/upset someone.
 
 </details>
 
