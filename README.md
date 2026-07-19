@@ -140,7 +140,6 @@ Luo xiaohei . ID - doubles? IWEC
 
 Brusha DW . Medium -- doubles? DNI
 
-Sprout DW . Medium -- doubles? IWEC
 
 _________________
  
