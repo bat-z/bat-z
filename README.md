@@ -363,7 +363,7 @@ MLP fanbase dniuf
 3. Dean w(any charcters that he plays like solider boy), loki, the joker, Tailgate, & jason todd fans. Yea, this sounds ridiculous. I like some of the characters, but I can't stand the fans sorry.
 
 
-4. Most of my ex friends
+4. Most of my ex friends n ppl who are friends with them. This always happens to me whenever someone ints with me without knowing they are friends with them. its uncomfortle and awkard at same time and I don’t want to upset any of my ex friends.
    
 
 5. ppl who yume with Damian, Luo xiaohei, & Gus. the rest of my kins? I dont care just IWEC
