@@ -134,7 +134,6 @@ Caine . ID -- doubles? DNIUF
 
 Luo xiaohei . ID - doubles? IWEC
  
- Anna marie . HIGH - doubles? IWEC
 
  captain gantu . HIGH - doubles? IWEC
 
@@ -307,7 +306,6 @@ Animal hospital
  <details>
 <summary>DISLIKES !</summary>
 
-1. I'm very afraid of heights
 
 2. heavy gore and fictional gore scare the shit out of me. 
 
