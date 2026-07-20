@@ -349,7 +349,7 @@ Batfam fans unless we friends
 </details>
 
 <details>
-<summary>DNI !</summary>
+<summary>I WONT BEFRIEND/WILL BLOCK !</summary>
 
 
 
