@@ -313,7 +313,7 @@ Animal hospital
 <summary>DISLIKES !</summary>
 
 
-Ehh, anti vs pro/dark/comship wars. No, I am not a dark/proshipper and an anti. I also don’t want to be labeled as any of them. 
+Ehh, anti vs pro/dark/comship wars. No, I am not a dark/proshipper or an anti. I also don’t want to be labeled as any of them. 
  
 
 DC New 52. I don’t care if ppl liked it. We have different opinions 
