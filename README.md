@@ -80,7 +80,7 @@ More in here;
 ⠀⠀ ⠀⠀ ⠀ ⠀⠀ <details> 
 ⠀⠀⠀ ⠀ <summary> REMINDER </summary>
 
-⠀⠀⠀⠀ ⠀ ⠀-- I don't comment on ata except with ⠀⠀ ⠀⠀some close friends. I mostly use VPN for safety lol. And if someone impersonating me made a comment on ata that isn't my friend, that is NOT me. Same with ppl copying my skins. I'm not worried of ppl copying me. I just worry about them using it in weird ways.
+⠀⠀⠀⠀ ⠀ ⠀-- I don't comment on ata except with ⠀⠀ ⠀⠀some close friends. I mostly use VPN for safety lol. And if someone impersonating me made a comment on ata that isn't my friend, that is NOT me. Same with ppl copying my skins. I'm not worried of ppl copying me or their style are very familar as mine since i dont own them. I just worry about them using it in weird ways.
 
 ⠀⠀⠀⠀⠀ ⠀  ⠀I’m not going to unblock anyone. Please stop bothering my friends. My friends and I don’t owe you any explanation.
 
