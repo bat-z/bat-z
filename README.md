@@ -55,14 +55,14 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
   I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when it comes with new people. I don’t want to come across as annoying or as if I'm bothering anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. I overshare a lot. if you find it annoying, let me know!
 
 
-Please bear in mind that I have dyslexia and dyscalculia. my main problems are basic spelling, grammar, counting, and more. dont be upset
+Please bear in mind that I have dyslexia and dyscalculia. My main problems are basic spelling, grammar, counting, and more. Don't be upset
 
 
 
 
 I am a very sensitive person and an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
 
-If you dont wanna check my strawpage, you can check my kintypes list for doubles in pronouncc! To avoid accidental awkward situations. If you feel uncomfortable with me confirming the bad/overhated characters, do not int or block me, simple as that. no one is forcing you to int with me.  
+If you don't wanna check my strawpage, you can check my kintypes list for doubles in pronouncc! To avoid accidental awkward situations. If you feel uncomfortable with me confirming the bad/overhated characters, do not int or block me, simple as that. No one is forcing you to int with me.  
 
  Be aware! This person is a survivor of abuse/SA/Groomings. Please be careful with what you say. I’m usually not bothered by sexually explicit jokes or some uncomfortable jokes, except SH or rape jokes, but it’s something to keep in mind. I do have my own triggers, but I don't bother telling anyone unless we're, like, very close...? I thought it would sound ridiculous lol.
 
