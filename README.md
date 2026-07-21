@@ -169,8 +169,8 @@ golden retriever
 caiman lizards
 
 
-[ extra ](https://aniamls.straw.page)
- 
+[ extra ]
+
  </details>
 
 
