@@ -46,24 +46,24 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
  <details>                     
 <summary>BEFORE YOU INTERACT! !</summary>
 
- 1. I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when comes with new people. I don’t want to come across as annoying or as if I'm botherin anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
+  I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when it comes with new people. I don’t want to come across as annoying or as if I'm bothering anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
 
 
-2. I am a very sensitive person and an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
+I am a very sensitive person and an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
 
-3. Please check my kintypes list for doubles in pronouncc! To avoid accidental awkward situations. If you feel uncomfortable with me confirming the bad people/overhated characters, please do not int.  
+ Please check my kintypes list for doubles in pronouncc! To avoid accidental awkward situations. If you feel uncomfortable with me confirming the bad people/overhated characters, please do not int.  
 
-4. Be aware! This person is a survivor of abuse/SA/Groomings. Please be careful with what you say. I’m usually not bothered by sexually explicit jokes or some uncomfortable jokes, except SH or rape jokes, but it’s something to keep in mind. I do have my own triggers, but I don't bother telling anyone unless we're, like, very close...? I thought it would sound ridiculous lol.
+ Be aware! This person is a survivor of abuse/SA/Groomings. Please be careful with what you say. I’m usually not bothered by sexually explicit jokes or some uncomfortable jokes, except SH or rape jokes, but it’s something to keep in mind. I do have my own triggers, but I don't bother telling anyone unless we're, like, very close...? I thought it would sound ridiculous lol.
 
-5.  I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
+  I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way, tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
 
-6. I tend to get very clingy to the people I feel comfortable with, and I end up being annoying if you don't like that, tell me.
+ I tend to get very clingy to the people I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
 
- 7. I don't really like large crowds. Also if it's a large group, I usually walk away.
+  I don't really like large crowds. Also, if it's a large group, I usually walk away.
 
- 8. I have bad sxious/health i will mostly stay away from Ponytown or any online sometimes without warning.
+  I have bad anxiety/health, i will mostly stay away from Ponytown or any online sometimes without warning.
 
-9. If I friend/interact with a problematic person, let me know! I rarely check others' profiles before reposting their content or becoming friends with them.
+ If I friend/interact with a problematic person, let me know! I rarely check others' profiles before reposting their content or becoming friends with them.
 
    
 
@@ -302,72 +302,38 @@ Animal hospital
 <summary>DISLIKES !</summary>
 
 
-2. heavy gore and fictional gore scare the shit out of me. 
+Ehh, anti vs pro/dark/comship wars. No, I am not a dark/proshipper and an anti. I also don’t want to be labeled as any of them. 
+ 
+
+DC New 52. I don’t care if ppl liked it. We have different opinions 
 
 
+People who have problems with friends, unless they have done something uncomfortable/upset someone.
 
-3.  loud & nasty noises
-
-
-4. anti vs pro/dark/comship wars. No, i am not a dark/proshipper. I also don’t want to be labeled as anti ;-;
-
-
-   
-6. demonizing BPD and NPD.
-
-
-7. tone tags. Some of them are fine 
-
-
-8. The word "kinnie," I don't know it gives a mixed feeling and I don't like it. I have no problem with the fictionkin community using tho
-
-
-9. Self/Yumeshippers community + nonsharing users. sorry, they scares me😞
-
-
-10. DC New 52. I don’t care if ppl liked it. We have different opinions 
-
-
-11. people who have problems with friends, unless they have done something uncomfortable/upset someone.
-
-12. Joker and Batjokes (I don't like him or the ship in any universe thats include Lego Batman and Telltale. His existence annoys me).
 
 </details>
 
  <details>
 <summary>THIN ICS !</summary>
 
-Batfam fans unless we friends
-
-eddsworld fans unless friends
+Batfam fans and Eddsworld fans unless friends.
 
 
 </details>
 
 <details>
 <summary>I WONT BEFRIEND/WILL BLOCK !</summary>
+  
+
+ cch*rrypie/j-pawss & friends. Hoping he’s not around and please do NOT mention him.
+
+ Dean w(any characters that he plays like Soldier Boy), Loki, Tailgate, & Jason Todd fans. Yeah, this sounds ridiculous. I like some of the characters, but I can't stand the fans, sorry.
 
 
-
-
-
-1. spn, gorillaz, COD, Dandy's world, Boyfriend To Death, creepypasta, TADC fanbase dni
-
-
-MLP fanbase dniuf
-
-2. cch*rrypie/j-pawss & friends. Hoping he’s not around and pleas do NOT mention him.
-
-3. Dean w(any charcters that he plays like solider boy), loki, the joker, Tailgate, & jason todd fans. Yea, this sounds ridiculous. I like some of the characters, but I can't stand the fans sorry.
-
-
-4. Most of my ex friends n ppl who are friends with them. This always happens to me whenever someone ints with me without knowing they are friends with them. its uncomfortle and awkard at same time and I don’t want to upset any of my ex friends.
+ Most of my ex friends and ppl who are friends with them. This always happens to me whenever someone interacts with me without knowing they are friends with them. its uncomfortle and awkward at the same time, and I don’t want to upset any of them. Unless you're friends with j-pawss, fuck off.
    
 
-5. ppl who yume with Damian, Luo xiaohei, & Gus. the rest of my kins? I dont care just IWEC
-
-
-6. benstiel & his friends
+lazy to list; I'm going to block whoever I want
 
    
 </details>
@@ -375,7 +341,7 @@ MLP fanbase dniuf
 <details>
 <summary>EXTRA !</summary>
 
-I block freely! If I don't like your vibe, I'll probably avoid or block you. or if its a double
+I block freely! If I don't like your vibe, I'll probably avoid or block you, or if it's a double
 
 </details>
 
