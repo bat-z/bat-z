@@ -107,6 +107,8 @@ More in here;
 
   I'm aware I don't own the characters🫡
 
+  I really don talk about kintypes much so here are the list.
+
   
   Booster gold . HIGH - doubles? DNI
 
@@ -122,8 +124,6 @@ Music meister . HIGH - doubles? IWEC
 
 Angel xmen . HIGH - doubles? IWEC
 
-Gamma jack . High - doubles? IWEC
-
 Jetfire/Skyfire . ID - doubles? IWEC
   
   Gus Sweettooth . ID - doubles? DNI
@@ -132,12 +132,8 @@ Caine . ID -- doubles? DNIUF
 
  Autumn blaze . HIGH - doubles? DNI
 
-Luo xiaohei . ID - doubles? IWEC
+ more; [kintypes]
  
-
- captain gantu . HIGH - doubles? IWEC
-
-Brusha DW . Medium -- doubles? DNI
 
 
 _________________
@@ -161,7 +157,6 @@ golden retriever
 
 caiman lizards
 
- more; [kintypes](https://fictotype.straw.page/hi)
 
 [ extra ](https://aniamls.straw.page)
  
