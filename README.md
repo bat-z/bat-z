@@ -12,7 +12,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
 <img src="https://raw.githubusercontent.com/bat-z/bat-z/f7cd7e36fa11d50be4181d808a29dcd98e55c055/%E0%A3%AA_%20%E2%81%BA%20doomguy.jpeg" width="50%"><img src="https://github.com/bat-z/StaticSh0ck/blob/94fab8e6e4d33cff882e482d776c3f81fd773029/914e5954b57ed5d26f282858805cf363.jpg" width="30%">
   
-⠀ ⠀ ⠀𐂂⠀  --⠀  My name is Hal or Sol. 
+⠀ ⠀ ⠀𐂂⠀  --⠀  My name is Hal, Rae, or Sol. 
 ⠀ ⠀
 ⠀⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ other⠀names! I have multiple ;
@@ -20,7 +20,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
 
    
- ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Hal, Sol, or Aster
+ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Hal, Rae, Sol, or Aster
  
  ⠀ 𐂂⠀- rest; Harv, Azro, Damian, Azrael,Thorne, koa, or Ghoul!
     
