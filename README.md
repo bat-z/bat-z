@@ -62,7 +62,7 @@ Please bear in mind that I have dyslexia and dyscalculia. My main problems are b
 
 I am a very sensitive person and an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
 
-If you don't wanna check my strawpage, you can check my kintypes list for doubles in pronouncc! To avoid accidental awkward situations. If you feel uncomfortable with me confirming the bad/overhated characters, do not int or block me, simple as that. No one is forcing you to int with me.  
+If you don't wanna check my strawpage, you can check my kintypes list for doubles in pronouncc! To avoid accidental awkward situations. If you feel uncomfortable with me confirming the bad/overhated characters, do not int or block me, simple as that. No one is forcing you to int with me. If you're nonsharing and yume my kins.I don’t care just interact! As long you dont act weird. 
 
  Be aware! This person is a survivor of abuse/SA/Groomings. Please be careful with what you say. I’m usually not bothered by sexually explicit jokes or some uncomfortable jokes, except SH or rape jokes, but it’s something to keep in mind. I do have my own triggers, but I don't bother telling anyone unless we're, like, very close...? I thought it would sound ridiculous lol.
 
