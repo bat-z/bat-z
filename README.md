@@ -262,6 +262,10 @@ Undertale
 
 Deltarune
 
+
+Disney [ Mickey Mouse, princesses & some more ]
+
+
 Star Trek
 
 FNAF + fangames
@@ -319,6 +323,9 @@ Ehh, anti vs pro/dark/comship wars. No, I am not a dark/proshipper or an anti. I
 DC New 52. I don’t care if ppl liked it. We have different opinions 
 
 
+ Dean w(any characters that he plays like Soldier Boy), Tailgate, & Jason Todd fans. Yeah, this sounds ridiculous. I like some of the characters, but I can't stand the fans, sorry.
+
+ 
 People who have problems with friends, unless they have done something uncomfortable/upset someone.
 
 
@@ -338,7 +345,6 @@ Batfam fans and Eddsworld fans unless friends.
 
  cch*rrypie/j-pawss & friends. Hoping he’s not around and please do NOT mention him.
 
- Dean w(any characters that he plays like Soldier Boy), Loki, Tailgate, & Jason Todd fans. Yeah, this sounds ridiculous. I like some of the characters, but I can't stand the fans, sorry.
 
 
  Most of my ex friends and ppl who are friends with them. This always happens to me whenever someone interacts with me without knowing they are friends with them. its uncomfortle and awkward at the same time, and I don’t want to upset any of them. Unless you're friends with j-pawss, fuck off.
@@ -356,7 +362,7 @@ lazy to list others; I'm going to block whoever I want
 <details>
 <summary>EXTRA !</summary>
 
-I block freely! If I don't like your vibe, I'll probably avoid or block you, or if it's a double
+I block freely! If I don't like your vibe, I'll probably avoid or block you. I will mostly ignore doubles
 
 </details>
 
