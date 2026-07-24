@@ -349,7 +349,7 @@ Batfam fans and Eddsworld fans unless friends.
 
  Most of my ex friends and ppl who are friends with them. This always happens to me whenever someone interacts with me without knowing they are friends with them. its uncomfortle and awkward at the same time, and I don’t want to upset any of them. Unless you're friends with j-pawss, fuck off.
 
-
+➤  My friends ex friends
 
  Ppl who seek drama and those who do not know how to apologize properly or take responsibility for their actions.
 
