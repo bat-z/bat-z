@@ -6,7 +6,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
 
 
 
-   [ABOUT ME](https://orjsowisoaoaos.straw.page)
+ ⠀  ⠀ ⠀ ⠀    [ABOUT ME](https://orjsowisoaoaos.straw.page)
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
 
 
