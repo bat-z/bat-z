@@ -64,19 +64,16 @@ Please bear in mind that I have dyslexia and dyscalculia. My main problems are b
 
 I am a very sensitive person and an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
 
- If you feel uncomfortable with me confirming the bad/overhated characters, do not int or block me, simple as that. No one is forcing you to int with me. If you're nonsharing and yume my kins.I don’t care just interact! As long you dont act weird. 
+ If you feel uncomfortable with me confirming the bad/overhated characters, do not int or block me, simple as that. No one is forcing you to int with me.
 
 
   I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way, tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
 
  I tend to get very clingy to the people I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
 
-  I don't really like large crowds. Also, if it's a large group, I usually walk away.
 
-  I have bad anxiety/health, i will mostly stay away from Ponytown or any online sometimes without warning.
 
- If I friend/interact with a problematic person, let me know! I rarely check others' profiles before reposting their content or becoming friends with them.
-
+If I befriend or int with a problematic person, let me know
    
 
 
@@ -138,11 +135,7 @@ Angel xmen . HIGH - doubles? IWEC
 
 Jetfire/Skyfire . ID - doubles? IWEC
   
-  Gus Sweettooth . ID - doubles? DNI
  
-Caine . ID -- doubles? DNIUF
-
- Autumn blaze . HIGH - doubles? DNI
 
  more; [kintypes]
  
@@ -322,9 +315,6 @@ Ehh, anti vs pro/dark/comship wars. No, I am not a dark/proshipper or an anti. I
  
 
 DC New 52. I don’t care if ppl liked it. We have different opinions 
-
-
- Dean w(any characters that he plays like Soldier Boy), Tailgate, & Jason Todd fans. Yeah, this sounds ridiculous. I like some of the characters, but I can't stand the fans, sorry.
 
  
 People who have problems with friends, unless they have done something uncomfortable/upset someone.
