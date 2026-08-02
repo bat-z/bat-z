@@ -243,17 +243,14 @@ arcane
 
 DreamZzz
 
-Sonic
 
 Ninjago
 
 The tick
 
-Monkie kid
 
 Incredibles
 
-Undertale
 
 Deltarune
 
@@ -284,7 +281,6 @@ ___________________________________
 
 ➤ New to;
 
-BSD
 
 Jumpcut
 
