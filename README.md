@@ -238,7 +238,6 @@ Marvel
 
 DC
 
-Octonauts
 
 arcane
 
