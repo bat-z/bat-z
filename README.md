@@ -47,7 +47,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JӨЯDΛП/j}$$
  ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ISTP
 ⠀ 
-⠀ ⠀ ⠀⠀ 𐂂 -- ⠀Furry, kemonomimi & alterhuman!
+⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀⠀ 𐂂 -- ⠀Furry, kemonomimi & alterhuman!
 
 
 ⠀⠀ ⠀⠀⠀ 𐂂 --⠀phone user probably looks weird on PC
