@@ -99,9 +99,6 @@ Please don’t be upset with me
 — I am an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side.
 I apologize very often, and I also find it hard to say no or set boundaries for myself.
 
-— If you feel uncomfortable with me confirming the bad/overhated characters, do not int or block me, simple as that. No one is forcing you to int with me.
-
-
   — I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way, tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
 
  — I tend to get very clingy to the people I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
