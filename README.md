@@ -132,6 +132,8 @@ More in here;
 
   Doom slayer . ID - doubles? DNI
   
+ Michael de santa . Fullkin/ID — doubles? IWEC.
+  
   Hal Jordan . Fullkin/ID - doubles? DNI
  
  Damian Wayne . Fullkin/ID - doubles? DNI
@@ -151,25 +153,25 @@ Jetfire/Skyfire . ID - doubles? IWEC
 
 
 _________________
+ Other alterhumans;
  
- komodo dragon
  
- wolverine 
+ wolverinekin 
 
- ferret
+ ferret therian
 
-monitor lizard
+monitor lizard kin
 
- penguin
+ penguin kin
 
- mouse
+ mouse kin
 
- owl
+ owl kin
 
-golden retriever
+golden retriever kin
 
 
-caiman lizards
+caiman lizards kin
 
 
 [ extra ]
@@ -216,23 +218,28 @@ caiman lizards
 <details>
 <summary>FANDOM !</summary>
 
+ACTIVE ; 
 
+DC
 
-planet of the apes
-
-
-Rescue bots/Transformers
+Villainous
 
 Marvel
 
-DC
+GTA5
+
+
+
+REST ;
+
+Rescue bots/Transformers
 
 
 arcane
 
 DreamZzz
 
-
+planet of the apes
 Ninjago
 
 The tick
@@ -253,8 +260,6 @@ Kipo and the age of wonderbeasts
 Monster High
 
 Good Omens
-
-Villainous
 
 
 Please please i don't want to be a magical girl
@@ -293,8 +298,6 @@ Animal hospital
 <summary>DISLIKES !</summary>
 
 
-Ehh, anti vs pro/dark/comship wars. Don’t slap me any of those labels.
-
 DC New 52. I don’t care if ppl liked it. We have different opinions 
 
  
@@ -304,9 +307,11 @@ People who have problems with friends, unless they have done something uncomfort
 </details>
 
  <details>
-<summary>THIN ICS !</summary>
+<summary>THIN ICES !</summary>
 
 Batfam fans and Eddsworld fans unless friends.
+
+Fictionkins & yumeshippers users unless we friends
 
 
 </details>
@@ -320,12 +325,13 @@ Batfam fans and Eddsworld fans unless friends.
 
 
 
- My friends ex friends
+ My friend’s ex friends
 
  Ppl who seek drama and those who do not know how to apologize properly or take responsibility for their actions.
 
+ No fandom DNI. except Supernatural 
  
-Not going to list others. I'm going to block whoever I want. Like I block freely! If I don't like your vibe, I'll probably avoid or block you shrugs
+Not going to list others. I'm going to block whoever I want. I block freely! If I don't like your vibe, I'll probably avoid or block you shrugs
 
    
 </details>
