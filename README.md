@@ -4,11 +4,11 @@ please read before you int or follow me. [something something …](https://burrr
 
 $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
  
-   ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ [ATABOOK](https://magicalgirll.atabook.org/)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ 𐂂⠀-- ⠀ ⠀If you want to draw;⠀   [STRAWPAGE](h) 
+   ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ [ATABOOK](https://magicalgirll.atabook.org/)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ 𐂂⠀-- ⠀ ⠀If you want to draw;⠀  [STRAWPAGE](h) 
 
 
 
- ⠀  ⠀ ⠀ ⠀    [ABOUT ME](https:)
+ ⠀  ⠀ ⠀   [ABOUT ME](:)
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
 
 I do art commissions… 
@@ -78,7 +78,9 @@ Most of terms are in pronouncc I’m only comfortable to share with people I tru
 If you think otherwise, thats okay, but keep it to yourself. Even you believe it is a choice.
 Its ur belief, not mine. It feels pointless to argue. kinfirm a character does not mean I agree with their actions. i cannot help who I kin, but I control my actions.
 
-— I care a lot about my image.
+— I care a lot about my own image.
+
+— I paranoia👍
 
 — I yap a lot about Green lanterns or the flash orr JLI or JLE.
 
