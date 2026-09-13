@@ -229,9 +229,7 @@ Villainous
 
 Marvel
 
-GTA5
-
-
+GTA5[Only story mode.]
 
 REST ;
 
@@ -242,17 +240,17 @@ arcane
 
 DreamZzz
 
+Minceaft story mode
+
 planet of the apes
+
 Ninjago
 
 The tick
 
-
 Incredibles
 
-
 Deltarune
-
 
 Star Trek
 
