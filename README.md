@@ -78,6 +78,10 @@ Most of terms are in pronouncc I’m only comfortable to share with people I tru
 If you think otherwise, thats okay, but keep it to yourself. Even you believe it is a choice.
 Its ur belief, not mine. It feels pointless to argue. kinfirm a character does not mean I agree with their actions. i cannot help who I kin, but I control my actions.
 
+— I care a lot about my image.
+
+— I yap a lot about Green lanterns or the flash orr JLI or JLE.
+
 —  I’m awkward as shit. 
 I’m socially awkward and get overwhelmed really easily, also sensitive. 
 I tend to be somewhat quiet or rarely INT first when it comes with new people. 
@@ -102,16 +106,8 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 
  — I tend to get very clingy to the people I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
 
-
-
 — If I befriend or int with a problematic person, let me know
-   
-
-
-More in here;
-
-
-[BEFORE YOU INTERACT](https://oldmenyaoislop.straw.page/iskssoos)
+  
 
 </details>
 
@@ -130,13 +126,10 @@ I’m not going to unblock anyone. Please stop bothering my friends. My friends 
 ⠀⠀ ⠀⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱⏔⏔⏔⏔⏔⏔⏔⏔
 ⠀ ⠀⠀⠀
 
-
 𐂂 -- I always stay close with my lovely friends ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀[erik/shwinn :3](https://github.com/shw1enholmes), [office/billy](https://github.com/dinosaursawesome), [jimmy](https://github.com/jimmyiktT), [kirk](https://github.com/thedeerhasdied), [hiro](https://github.com/hirokojie), & [glitch](https://github.com/AGl1tchWasF0und)! + those who dont have a git or outside pt! I'm lazy to list others
  
 ⠀ ⠀⠀𐂂 -- ⠀ One of my cool friend,[erik](https://github.com/shw1enholmes) drew my oc! <img src="https://github.com/bat-z/bat-z/blob/79202cb94bfe929016ec25f37cd8b2985a6ca8e3/Untitled132_20260712130437.png" width
   ="50%">
-  
-
 
 
 <img src="https://github.com/bat-z/bat-z/blob/74c12cc1ee052e6cf57ac65a27636f746a12634b/IMG_5582.gif" width="40%"> <img src="https://github.com/bat-z/bat-z/blob/9fa6e7e077ebc9174b977093441d556bcb9b0135/IMG_5585.gif" width="40%"> <img src="https://github.com/bat-z/bat-z/blob/1145d2d1952aac4e274b4c22cdd8aa82159a51d3/IMG_5581.gif" width="40%">
@@ -149,7 +142,6 @@ I’m not going to unblock anyone. Please stop bothering my friends. My friends 
 
   I really don talk about kintypes much so here are the list.
 
-  
   Booster gold . HIGH - doubles? DNI
 
   Doom slayer . ID - doubles? DNI
@@ -167,19 +159,11 @@ Music meister . HIGH - doubles? IWEC
 Angel xmen . Fullkin - doubles? IWEC
 
 Jetfire/Skyfire . ID - doubles? IWEC
-  
- 
-
- more; [kintypes]
- 
-
-
 _________________
  Other alterhumans;
  
- 
  wolverinekin 
-
+ 
  ferret therian
 
 monitor lizard kin
