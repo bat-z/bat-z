@@ -68,9 +68,11 @@ If you think I've taken things too far by using microlabels, xenogenders, alterh
 Feel free to not int, or block me if you are uncomfortable with my existence or our community.
 
 ꗞ — Whats the point of terms?
-It may not help, but i will try. For me, I use them to discover more about myself. Thats it.
-may seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more.
-I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, to fit in. Most of terms are in pronouncc I’m only comfortable to share with people I trust.
+It may not help, but i will try. 
+For me, I use them to discover more about myself. Thats it.
+May seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more.
+I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, to fit in. 
+Most of terms are in pronouncc I’m only comfortable to share with people I trust.
 
 ꗞ — Am I a bad person for kinfirming overhated characters, even problematic ones like Blackhand n Sabretooth? No.
 If you think otherwise, thats okay, but keep it to yourself. Even you believe it is a choice.
@@ -120,7 +122,7 @@ More in here;
 
 ⠀⠀⠀⠀ ⠀ ⠀-- I don't comment on ata except with ⠀⠀ ⠀⠀some close friends. I mostly use VPN for safety lol. And if someone impersonating me made a comment on ata that isn't my friend, that is NOT me. Same with ppl copying my skins. I'm not worried of ppl copying me or their style are very familar as mine since i dont own them. I just worry about them using it in weird ways.
 
-⠀⠀⠀⠀⠀ ⠀  ⠀I’m not going to unblock anyone. Please stop bothering my friends. My friends and I don’t owe you any explanation.
+I’m not going to unblock anyone. Please stop bothering my friends. My friends and I don’t owe you any explanation.
 
 
 ⠀⠀⠀⠀ ⠀ ⠀ </details>
@@ -292,8 +294,6 @@ ___________________________________
 
 ➤ New to;
 
-
-
 The pitt
 
 Cherry crush
@@ -342,9 +342,6 @@ Fictionkins & yumeshippers users unless we friends
 
  ccherrypie/j-pawss. Hoping he’s not around 
 
-
-
-
  My friend’s ex friends
 
  Ppl who seek drama and those who do not know how to apologize properly or take responsibility for their actions.
@@ -356,13 +353,7 @@ Not going to list others. I'm going to block whoever I want. I block freely! If 
    
 </details>
 
-
 <img src="https://github.com/bat-z/bat-z/blob/8969fed5202b7ad3e43f5625f4155c5cc0b0cb0a/IMG_1379.gif" width="80%">
 
 
 <img src="https://github.com/bat-z/bat-z/blob/db593743f20395762a6155e74a6c6c89d94c307e/IMG_8507.jpeg" width="90%">
-
-
-
-
-
