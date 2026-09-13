@@ -60,7 +60,7 @@ I only take cashapp gulps.
 
  
  <details>                     
-<summary>BEFORE YOU INTERACT! !</summary>
+<summary>BEFORE YOU INTERACT! OVERSHARING? !</summary>
 
 
 ꗞ — Im aware that I am a weirdo.
@@ -79,8 +79,6 @@ If you think otherwise, thats okay, but keep it to yourself. Even you believe it
 Its ur belief, not mine. It feels pointless to argue. kinfirm a character does not mean I agree with their actions. i cannot help who I kin, but I control my actions.
 
 — I care a lot about my own image.
-
-— I paranoia👍
 
 — I yap a lot about Green lanterns or the flash orr JLI or JLE.
 
