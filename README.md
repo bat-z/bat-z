@@ -63,17 +63,35 @@ I only take cashapp gulps.
 <summary>BEFORE YOU INTERACT! !</summary>
 
 
-— I am aware that I am a weirdo. If you think I've taken things too far by being fictionkin/alterhuman, using microlabels, xenogenders, or anything else, that is a you problem. Not mine or anyone else's. Do not interact, or simply block me if you are uncomfortable with my existence or our community. I use these terms to discover more about myself. That is it.
+ꗞ — Im aware that I am a weirdo.
+If you think I've taken things too far by using microlabels, xenogenders, etc.
+Feel free to not int, or block me if you are uncomfortable with my existence or our community.
 
-—  I’m quite socially awkward and get overwhelmed easily, so I tend to be somewhat quiet or rarely INT first when it comes with new people. I don’t want to come across as annoying or as if I'm bothering anyone. I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
+ꗞ — Whats the point of terms?
+It may not help, but i will try. For me, I use them to discover more about myself. Thats it.
+may seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more.
+I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, to fit in.
+
+ꗞ — Am I a bad person for kinfirming overhated characters, even problematic ones like Blackhand n Sabretooth? No.
+If you think otherwise, thats okay, but keep it to yourself. Even you believe it is a choice.
+Its ur belief, not mine. It feels pointless to argue. kinfirm a character does not mean I agree with their actions. i cannot help who I kin, but I control my actions.
+
+—  I’m awkward as shit. 
+I’m socially awkward and get overwhelmed really easily, also sensitive. 
+I tend to be somewhat quiet or rarely INT first when it comes with new people. 
+I don’t want to come across as annoying or as if I'm bothering anyone. 
+I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
 
 
-— Please bear in mind that I have dyslexia and dyscalculia. My main problems are basic spelling, grammar, counting, and more. Please don’t be upset
+— Please bear in mind that I have dyslexia, Written Expression Disorder, and dyscalculia. Not very fun at all.
+My main problems are basic spelling, poor grammar, counting, and list goes on... 
+Please don’t be upset with me
 
 
 
 
-— I am a very sensitive person and an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side. I apologize very often, and I also find it hard to say no or set boundaries for myself.
+— I am an overthinker. I worried/care about my friends and the people I interact with, and I try to be on their good side.
+I apologize very often, and I also find it hard to say no or set boundaries for myself.
 
 — If you feel uncomfortable with me confirming the bad/overhated characters, do not int or block me, simple as that. No one is forcing you to int with me.
 
