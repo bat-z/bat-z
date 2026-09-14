@@ -143,15 +143,15 @@ I’m not going to unblock anyone. Please stop bothering my friends. My friends 
   
  Michael de santa . Fullkin/ID — doubles? IWEC.
   
-  Hal Jordan . Fullkin/ID - doubles? DNI
+  Hal Jordan . Fullfic/ID - doubles? DNI
  
- Damian Wayne . Fullkin/ID - doubles? DNI
+ Damian Wayne . Fullfic/ID - doubles? DNI
 
-  Harvey dent/Two face . Fullkin/ID - doubles? IWEC
+  Two face . Fullfic/ID - doubles? DNI
   
 Music meister . HIGH - doubles? IWEC
 
-Angel xmen . Fullkin - doubles? IWEC
+Angel xmen . Fullfic - doubles? IWEC
 
 Jetfire/Skyfire . ID - doubles? IWEC
 _________________
