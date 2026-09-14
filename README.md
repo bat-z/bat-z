@@ -1,4 +1,4 @@
-im gay... [something something …](https://burrrrps.straw.page)
+im bored... [something something …](https://burrrrps.straw.page)
 
 <img src="https://komarev.com/ghpvc/?username=USERNAME&label=𐂯&color=green">
 
