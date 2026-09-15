@@ -78,7 +78,7 @@ Its ur belief, not mine. It feels pointless to argue. kinfirm a character does n
 
 — I care a lot about my own image.
 
-— I yap a lot about Green lanterns or the flash orr JLI or JLE.
+— I yap a lot about Green lanterns or the flash, JLI, JLA, doom patrol, JLE, and much more![I’m obsessed with DC ]
 
 —  I’m awkward as shit. 
 I’m socially awkward and get overwhelmed really easily, also sensitive. 
