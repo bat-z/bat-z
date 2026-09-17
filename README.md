@@ -306,7 +306,7 @@ People who have problems with friends, unless they have done something uncomfort
  <details>
 <summary>THIN ICES !</summary>
 
-Batfam fans and Eddsworld fans unless friends.
+Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
 Fictionkins & yumeshippers users unless we friends
 
