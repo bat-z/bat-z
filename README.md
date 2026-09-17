@@ -304,7 +304,7 @@ People who have problems with friends, unless they have done something uncomfort
 </details>
 
  <details>
-<summary>THIN ICES !</summary>
+<summary>THIN ICES. NOT A DNI!</summary>
 
 Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
