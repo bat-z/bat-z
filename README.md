@@ -140,8 +140,6 @@ I’m not going to unblock anyone. Please stop bothering my friends. My friends 
  Michael de santa . Fullkin/ID — doubles? IWEC.
   
   Hal Jordan . Fullfic/ID - doubles? DNI
- 
- Damian Wayne . Fullfic/ID - doubles? DNI
 
   Two face . Fullfic/ID - doubles? DNI
   
