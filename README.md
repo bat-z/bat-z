@@ -2,11 +2,11 @@
 
 $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
  
-   ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ [ATABOOK](https://magicalgirll.atabook.org/)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ 𐂂⠀-- ⠀ ⠀If you want to draw;⠀  [STRAWPAGE](h) 
+   ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ [ATABOOK](https://harold.atabook.org)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ 𐂂⠀-- ⠀ 
 
 
 
- ⠀  ⠀ ⠀   [ABOUT ME](:)
+ ⠀  ⠀ ⠀   [ABOUT ME](https://idkmaybeintro.straw.page)
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
 
 
@@ -17,20 +17,13 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
 <img src="https://github.com/bat-z/bat-z/blob/cdad4e7daca15e76301a91401c64ec732d9f3aaa/783844DD-6F1D-4FBD-B814-D6349ACB7E35.jpeg" width="40%"><img src="https://github.com/bat-z/StaticSh0ck/blob/94fab8e6e4d33cff882e482d776c3f81fd773029/914e5954b57ed5d26f282858805cf363.jpg" width="30%"><img src="https://github.com/bat-z/bat-z/blob/002c09f0350c8c0a5d8737d2b4b47f2392d52d0b/237699B5-F816-4797-917E-BA6E00FC5864.jpeg" width="30%"> 
 ⠀ ⠀ ⠀
-𐂂⠀  --⠀  My name is Hal, Rae, or Sol. 
-⠀ ⠀
-⠀⠀ ⠀
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ other⠀names! I have multiple ;
 
-
-
-   
- ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Hal, Rae, or Sol
+ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Greetings, you can call me Hal / Harold or other names like Rae or Sol. I am fine with nicknames.
  
- ⠀ 𐂂⠀- rest;Damian, Aster Azrael,Thorne, or Ghoul!
+ ⠀ 𐂂⠀- other names I love; Damian, Aster Azrael,Thorne, or Ghoul!
     
     
-⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pron; they / she / any
+⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pronouns we prefer ; it / its or they / them .
       ⠀ 
       
  ⠀𐂂⠀ -- Biracial ! (black n brown ) . Puerto Rico ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ 
@@ -43,7 +36,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
 ⠀      ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀𐂂⠀  ⠀Introverted 
  ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ 
-⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ISTP 6w7
+⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ISTP 6w7 !
 ⠀ 
 ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀⠀ 𐂂 -- ⠀Furry, kemonomimi & alterhuman!
 
@@ -54,19 +47,25 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
  
  <details>                     
-<summary>BEFORE YOU INTERACT! OVERSHARING? !</summary>
+<summary>BEFORE YOU INTERACT! !</summary>
 
 
 ꗞ — Im aware that I am a weirdo.
-If you think I've taken things too far by using microlabels, xenogenders, alterhuman, etc.
-Feel free to not int, or block me if you are uncomfortable with my existence or our community.
+If you think I've taken things too far by using microlabels, xenogenders, alterhuman, etc. Feel free to not int, or block me if you are uncomfortable with my existence or our community. 
+
+I am a good-faith identity, that means I support not policing or excluding harmless identities, even those that are difficult to understand part of the community.
+
+I’m against anyone in our community who opposes our trans sisters. I am against misgendering[even against those who claimed they support xeno/neopronouns] in our community. Just because something upsets you, it doesn't give you an excuse to be transphobic even if you are a trans man, nonbinary, etc.
+I’m not interested in transmed stuff. 
+
+
+ꗞ — I’m no interested in any online argument such as proshippers/darkshippers vs antishippers.
 
 ꗞ — Whats the point of terms?
 It may not help, but i will try. 
 For me, I use them to discover more about myself. Thats it.
-May seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more.
-I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, to fit in. 
-Most of terms are in pronouncc I’m only comfortable to share with people I trust.
+May seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more. I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, to fit in. 
+Most of terms are in main pronouncc I’m only comfortable to share with people I trust.
 
 ꗞ — Am I a bad person for kinfirming overhated characters, even problematic ones like Blackhand n Sabretooth? No.
 If you think otherwise, thats okay, but keep it to yourself. Even you believe it is a choice.
@@ -74,7 +73,7 @@ Its ur belief, not mine. It feels pointless to argue. kinfirm a character does n
 
 — I care a lot about my own image.
 
-— I love Green lanterns or the flash, YJ, JLI, JLA, doom patrol, JLE, and much more![I’m obsessed with DC ]
+
 
 —  I’m awkward as shit. 
 I’m socially awkward and get overwhelmed really easily, also sensitive. 
@@ -83,7 +82,7 @@ I don’t want to come across as annoying or as if I'm bothering anyone.
 I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
 
 
-— Please bear in mind that I have dyslexia, Written Expression Disorder, and dyscalculia. very fun.
+— Please bear in mind that I have dyslexia, Dysgraphia, and dyscalculia. very fun.
 My main problems are basic spelling, poor grammar, counting, and list goes on... 
 Please don’t be upset with me
 
@@ -97,8 +96,9 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 
  — I tend to get very clingy to the people I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
 
-— If I befriend or int with a problematic person, let me know
-  
+— If I befriend or int with an actual problematic person, let me know.
+
+  — I don’t feel comfortable with ppl treating autism or any disability as a joke. Like creating a character look dumb and call them "tard".  Doesn’t matter if you’re diagnosed. Don’t care if you are a friend of my friends. 
 
 </details>
 
@@ -140,6 +140,7 @@ I’m not going to unblock anyone. Please stop bothering my friends. My friends 
  Michael de santa . Fullkin/ID — doubles? IWEC.
   
   Hal Jordan . Fullfic/ID - doubles? DNI
+ 
 
   Two face . Fullfic/ID - doubles? DNI
   
@@ -189,6 +190,7 @@ caiman lizards kin
 
 -- Fav youtubers; Kwite, PolarCub, Kaden, Flamingo, & Funneh I still watch them
 
+— I love Green lanterns or the flash, YJ, JLI, JLA, doom patrol, JLE, and much more![I’m obsessed with DC ]
 
 — fantasy/mythical creatures lover. Knights are so cool
 
@@ -300,9 +302,9 @@ People who have problems with friends, unless they have done something uncomfort
  <details>
 <summary>THIN ICES. NOT A DNI!</summary>
 
-Invincible , Jason Todd/Batfam fans and Eddsworld fans unless friends.
+Invincible , Muppets , Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
-Supernatural IWVEC/or don’t mention unless friends. 
+ Supernatural IWVEC/or don’t mention unless friends. 
 
 Fictionkins & yumeshippers users unless we friends
 
@@ -315,7 +317,7 @@ Fictionkins & yumeshippers users unless we friends
 
  ccherrypie/j-pawss. Hoping he’s not around 
 
- My friend’s ex friends
+ My friend’s ex friends especially ex partners[Only the ppl who hurt them]
 
  Ppl who seek drama and those who do not know how to apologize properly or take responsibility for their actions.
 
