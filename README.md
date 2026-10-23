@@ -359,11 +359,10 @@ ________________
 
 ☆ If i sound rude please let me know!
 
-☆ I rarely check random people's GitHub accounts unless they interact with me first. 
-I only follow ppl I am close and comfortable with.
+☆ If I am being too much or overshare and if you don’t like that let me know! I also change my intro most of time bec im bored or maybe I said too much.😭
 
 
-★ I sometimes make unfunny childish jokes with my close friends. Like idk.
+★ I sometimes make unfunny childish jokes with my close friends. Like, idk.
 
 
 ☆ I'm not much a trend hopper person, so don't expect me to keep up with every new slang or trend once a week.
@@ -457,12 +456,16 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 ______________
 
 
+☆ Hard to explain, but Folks who weaponize the word woke or claims they’re CEO of “wokeness” act like someone is going to give them a medal for being a good guy. “Is it just me, or am I—“, , 
+Dear God no, you are not. 
+
 ☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
 
 ☆ ship discourse
 
 
 ☆ riddler & fans from batman 2022 [ IWEC  unless we friends.]
+
 
 
 ꗞ —  Drama. I’m no interested in any online argument. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. Showing their username and everything while claiming "do not harass this person." Is just a poor excuse. 
@@ -504,11 +507,11 @@ I do stay away from drama as much as possible and rarely get involved.  I always
 </details>
 
 <details>
-<summary>DNI MAY NOT WORK BUT I WONT BEFRIEND/WILL BLOCK/IGNORE !</summary>
+<summary>DNI MAY NOT WORK BUT I WONT BEFRIEND/WILL BLOCK/AND IGNORE !</summary>
 
 
 
-⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
+⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
 
 ____________
 
@@ -516,9 +519,8 @@ ____________
 ☆ Those who break their own boundaries. "Dni"
 
 
-☆ ccherrypie/j-pawss. Hoping he’s not around 
+☆ @shw1enholmes. He stinks… jk I love you
 
-☆ My friend’s ex friends especially ex partners
 
 ☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses.😭 
 
