@@ -35,7 +35,7 @@ ____________
 ⠀ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/b66c4c3ddb1c8b6b068e0fa53486fb20c803857d/Untitled397_20261023161714.png" width="110%">⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀
 
 
-<img src="https://github.com/bat-z/bat-z/blob/93ba8ad01faba07a85585979119e0c88de2395e5/IMG_5991.jpeg" width="30%"><img src="https://github.com/bat-z/bat-z/blob/a7e4ea24ca9f1d7bcad40f346e066e8387a3d205/IMG_5992.jpeg" width="30%">
+<img src="https://github.com/bat-z/bat-z/blob/93ba8ad01faba07a85585979119e0c88de2395e5/IMG_5991.jpeg" width="60%"><img src="https://github.com/bat-z/bat-z/blob/a7e4ea24ca9f1d7bcad40f346e066e8387a3d205/IMG_5992.jpeg" width="60%">
 
 $${\color{#008000}  : 𐔌 .. ⋮ .ᐟ \ POWER \ OF \ FRIENDSHIP \ ! \ . 𖥻.ᐟ ׁ ׅ𐂯ᩙ }$$
 $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა  \ ! !  }$$
