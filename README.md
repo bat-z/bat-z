@@ -10,24 +10,22 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 ____________
 
 
-ꗞ⠀—  I only stick around with ppl Im close to. shrugs
+ꗞ⠀—  I only stick around with ppl Im close to. shrugs. remaking intro soon! test.
 
 ⠀⠀ ⠀⠀⠀I’m fine with C*H, or whisper me!!
 
-⠀ ⠀ ⠀ 
 
 
-⠀⠀⠀ ⠀⠀ ⠀[ click this ](https://www.tiktok.com/t/ZTfSoApKs/)
+⠀⠀⠀ ⠀⠀ ⠀<img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ click this ](https://www.tiktok.com/t/ZTfSoApKs/)
 ⠀
 
  
-   ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ [ATABOOK](https://harold.atabook.org)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ 𐂂⠀-- ⠀ 
- ⠀  ⠀ ⠀   [ABOUT ME](https://idkmaybeintro.straw.page)
+   ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ATABOOK](https://harold.atabook.org)  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ 𐂂⠀-- <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[ABOUT ME](https://idkmaybeintro.straw.page)
 
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀ ⠀
 
 
-[MICROLABELS & MORE](https://pronouns.cc/@.1batz)⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
+ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[MICROLABELS & MORE](https://pronouns.cc/@.stan)⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ 
 
 
 
@@ -35,11 +33,17 @@ ____________
 ⠀ ⠀ ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/b66c4c3ddb1c8b6b068e0fa53486fb20c803857d/Untitled397_20261023161714.png" width="110%">⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀
 
 
-<img src="https://github.com/bat-z/bat-z/blob/93ba8ad01faba07a85585979119e0c88de2395e5/IMG_5991.jpeg" width="60%"><img src="https://github.com/bat-z/bat-z/blob/a7e4ea24ca9f1d7bcad40f346e066e8387a3d205/IMG_5992.jpeg" width="60%">
+<img src="https://github.com/pilot-z/pilot-z/blob/89866ae92d498dd4e727d1342553cf5a627313de/IMG_5328.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/2a529d97a74147e924dac3d60e4315a43530ba57/IMG_5334.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/613051128a646de26c8e364389632595d987b7c2/IMG_5332.jpeg" width="30%">
 
 $${\color{#008000}  : 𐔌 .. ⋮ .ᐟ \ POWER \ OF \ FRIENDSHIP \ ! \ . 𖥻.ᐟ ׁ ׅ𐂯ᩙ }$$
-$${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა  \ ! !  }$$
+$${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS \ STAN \ AND \ ERIK \ AS \ KYLE \ ! !  }$$
 
+
+
+<img src="https://github.com/pilot-z/pilot-z/blob/2713d86e371d2492a9f6cb1b6300a9251c37782e/IMG_5858.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/87acc63145f30075aa46bdee9666df3cb6f5c922/IMG_5857.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/7d29ce4d826f1b2537ca52329fa24cbc1a4adc35/IMG_5855.jpeg" width="30%"> 
+⠀ ⠀ ⠀
+
+ $${\color{#A888B5} JIM \ AS \ KENNY, \ KIRK \ AS \ CARTMAN.(sorry) \ ! !  }$$
 
 I’m so glad our friendship is still going strong! It’s been a year(I think me and erik is almost 2 years..?) since we all met. I love you all, I 100% do(pleass trust). including the other friends I haven’t mentioned here.
 
@@ -73,14 +77,9 @@ $${\color{#EFB6C8} \  (˶ˆᗜˆ˵) \ INTRODUCTION \  ! ! \ 𖥻.ᐟ ׁ  \ : }$$
 ⠀⠀⠀ ⠀ <summary> 𐂯 </summary>
 
 ⠀⠀⠀⠀   
-  𐂯 —  ᵢ ᵣₑₐₗₗy ₛᵤcₖ ₐₜ ₑₓₚₗₐᵢₙᵢₙg ₜₕᵢₙgₛ, ₛₒ ᵢ ₘₒₛₜₗy ₐᵥₒᵢd ₜₕₑ wₒᵣd "fᵢcₜᵢₒₙₖᵢₙ" ₐₙd ”ₖᵢₙ.”
-ᵢ ⱼᵤₛₜ ₛₐy, ”ᵢ ₐₘ ₜₕₐₜ cₕₐᵣₐcₜₑᵣ,” bₑc ₜₕₑy ₐᵣₑ ₘₑ ₙ ᵢ ₐₘ ₜₕₑₘ.
- Yₖ ₕₒw ₛₒₘₑ ₚₑₒₚₗₑ bₑₗᵢₑᵥₑ ₜₕₑy ₕₐd ₚₐₛₜ ₗᵢᵥₑₛ, ₒᵣ ₜₕₐₜ ₜₕₑᵢᵣ ₛₒᵤₗ bₑₗₒₙgₛ ₜₒ ₛₒₘₑₜₕᵢₙg ₑₗₛₑ, dₑₚₑₙdᵢₙg ₒₙ wₕₐₜ ₜₕₑy bₑₗᵢₑᵥₑ, ₘᵤₗₜᵢ₋ᵥₑᵣₛₑₛ,  ₑₜc? Fₒᵣ ₘₑ, ₜₕₐₜ fₑₑₗᵢₙg ᵢₛ ₑₙₜᵢᵣₑₗy ₜᵢₑd ₜₒ ₕₐₗ ⱼₒᵣdₐₙ ₒᵣ wₕᵢcₕₑᵥₑᵣ cₕₐᵣₐcₜₑᵣ ᵢₜ ₕₐₚₚₑₙₛ ₜₒ bₑ ᵢₙ ₐₙy ₗₑᵥₑₗₛ. ᵢ ₐₘ fᵤₗₗy ₐwₐᵣₑ ᵢ ₐₘ ᵢₙ ₐ ₕᵤₘₐₙ bₒdy. ₕₐₗ ᵢₛₙ'ₜ ⱼᵤₛₜ ₐ cₕₐᵣₐcₜₑᵣ ᵢ ᵣₑₗₐₜₑ ₜₒ ᵢₜ'ₛ ₘₒᵣₑ ₗᵢₖₑ ₗₒₒₖᵢₙg ᵢₙ ₐ ₘᵢᵣᵣₒᵣ. ₘₑₙₜₐₗₗy, ₚₛycₕₒₗₒgᵢcₐₗₗy, ₑₜc, ₜₕₐₜ ᵢₛ wₕₒ ᵢ ₐₘ.
-
- 
- [I really suck at explaining things,so I mostly avoid the word "fictionkin" and ”kin.”
-I just say,”I am that character,” bec they are me n I am them.
-Yk how some people believe they had past lives,or that their soul belongs to something else, depending on what they believe, multi-verses, etc? For me, that feeling is entirely tied to Hal Jordan or whichever character it happens to be in any levels. I am fully aware I am in a human body.Hal isn't just a character I relate to It's more like looking in a mirror. Mentally,psychologically,etc, that is who I am.)
+  𐂯 —  I really suck at explaining things,so I mostly avoid the word "fictionkin" and ”I kin ___.”
+I just say,”I am that character name,” bec they are me n I am them.
+Yk how some people believe they had past lives,or that their soul belongs to something else,depending on what they believe,multi-verses,etc? For me, that feeling is entirely tied to Hal Jordan or whichever character it happens to be in any levels. I am fully aware I am in a human body.Hal isn't just a character I relate to It's more like looking in a mirror.Mentally,psychologically,etc, that is who I am.<img src="https://github.com/pilot-z/pilot-z/blob/1fb19f8f05bed45bda30342d0c31d5adecf4719f/3AF1CC30-6CB4-4807-9971-D4DEE2D5ABF2.gif" width="10%">
 
 ⠀⠀⠀⠀ ⠀ ⠀ </details>
 
@@ -158,7 +157,7 @@ fictotypes ;
 ★ Jetfire/Skyfire . ID - doubles? IWEC
 
 
-Extra [pronoun.cc](https://pronouns.cc/@.1batz)
+Extra <img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[MICROLABELS & MORE](https://pronouns.cc/@.stan)⠀
 _________________
  
  
@@ -227,7 +226,7 @@ Other alterhumans;
 
 
 
-★ Sometimes I  like to crown ppl in whispers 
+★ Sometimes I  like to crown ppl in whispers <img src="https://github.com/pilot-z/pilot-z/blob/3281430fb8e59e91510494b35513512fae105a29/90A47D0A-995C-4236-A769-3FC4BA531F2E.gif" width="10%">
 
 ★ uhhhh Looking for cool alterhuman older friends whos 18 and oldr… 17 yr and 16 is alright.
 
@@ -247,9 +246,13 @@ Other alterhumans;
 
 ★  drawing, painting, craft, etc.
 
+★ favorite color ; green, red, yellow, orange, 00b4ac, and purple!
 
-★ action movies/shows
+★ movies/series. RoboCop, Real steel, Teen wolf, Umbrella Academy, good omens, and more.
 
+★ animated series/movies. Batman 2004, Green lantern animated, Transformers animated, inside out, villainous, bob’s burgers, Moral Orel, The wild robot, the brave and the bold, Haunted hotel, futurama, kipo and the age of wonderbeast, aqua teen hunger force and more.
+
+★ all animals & plants! I love watching nature videos & wildlife.
 
 ★ Reading, learning new stuff and languages!
 
@@ -269,11 +272,13 @@ ACTIVE ;
 
 ★ DC
 
+★ South Park(Only comfortable to int with 18+ fans.)
+
 ★ Villainous
 
 ★ Marvel
 
-★ GTA5[Only story mode.]
+★ GTA5[Only story mode. Only comfortable to int with 18+ fans.]
 
 REST ;
 
@@ -316,7 +321,7 @@ REST ;
 
 ★ TMNT
 
-★ Red dead Redemption II.
+★ Red dead Redemption II.(Only comfortable to int with 18+ fans.)
 
 ★ & much more.
 
@@ -342,16 +347,119 @@ ___________________________________
 </details>
 
 
- <details>                     
+
+ <details>
+<summary>DISLIKES !</summary>
+
+
+⠀ ⠀ ⠀ ꗞ —  My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of my parts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
+
+______________
+
+
+☆ Hard to explain, but Folks who weaponize the word woke or claims they’re CEO of “wokeness” act like someone is going to give them a medal for being a good guy. 
+
+☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
+
+☆ ship discourse. I'm so tired of ship discourse. Even the conversations between antis and pro/darkshippers are annoying. I've heard the same arguments over 20 times now, and I just don't want to see it anymore.
+
+
+☆ riddler & fans from batman 2022 [ IWEC  unless we friends.]
+
+
+
+ꗞ —  Drama. I’m no interested in any online argument. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. Showing their username and everything while claiming "do not harass this person." Is just a poor excuse. 
+I have also noticed that most call-out culture can't handle serious topics anyway. I stay away from drama as much as possible and rarely get involved. I always prefer to look at both sides of an issue to form my own opinion before making up my mind. That's all.
+
+
+
+
+☆ folks who think they’re better than anyone else. 🤔🤔🤔
+
+
+☆ DC New 52. I don’t care if ppl liked it. We have different opinions 
+
+☆ Seek drama. Like ppl who actively look to start drama. well as those who do not know how to apologize properly or take responsibility for their actions.
+
+
+☆ “Basic DNI” This phase gets on my nerves. What does that means? 
+
+
+
+☆ Making fun of mental health terms. Like triggers, or anything. That includes systems 
+
+ 
+☆ People who have problems with friends, unless they have done something uncomfortable/upset someone.
+
+
+</details>
+
+ <details>
+<summary>THIN ICES. NOT A DNI!</summary>
+
+My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of my parts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
+
+____
+
+☆ Invincible , Craig fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
+
+☆ Creek, Jayroy, & Damijon shippers
+
+☆ Creepypasta & Supernatural IWVEC/or don’t mention unless friends. 
+
+☆ yumeshipper of my highest kintypes unless we friends
+
+
+☆  Non-sharing and void-sharing yumes, as well as double-dislikers of fictionkins[ UNLESS FRIENDS!]. Most I met are toxic af. They seriously wanna threat their doubles.💔
+
+</details>
+
+<details>
+<summary>DNI MAY NOT WORK BUT I WONT BEFRIEND/WILL BLOCK/AND IGNORE !</summary>
+
+
+
+⠀ ⠀ ⠀ ꗞ — My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of my parts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
+
+____________
+
+  
+☆ Those who break their own boundaries. "Dni"
+
+
+☆ @shw1enholmes. He stinks… dni dni dni jk I love you
+
+
+☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses.😭 
+
+☆ Ppl who has same name as my former friends. I feel petty sorry😞
+
+
+
+ 
+☆ Not going to list others. I'm going to block whoever I want. I block freely! If I don't like your vibe, I'll probably avoid or block you shrugs
+
+   
+</details>
+
+<details>                     
 <summary> ABOUT ME & BEFORE YOU INTERACT![ You do not have to read all of them since its a lot. ] Be warned.. I yap a lot. !</summary>
 
 
-⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
+⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ꗞ —  My boundaries may seem ridiculous to some, but they mostly come from bad past experiences. I decided to make them because some of my parts are getting overwhelmed by repeated situations. Please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
+I do believe ppl should be themselves 
 
 ________________
 
 
-☆ If i sound rude please let me know!
+☆ I have a hard time expressing my emotions clearly. If I ever come off as rude, please let me know!
+
+ꗞ — Whats the point of terms?
+It may not help, but i will try. 
+For me, I use them to discover more about myself. Thats it.
+May seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more. I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, try to fit in.
+Most of terms are in main pronouncc I’m only comfortable to share with people I trust.<img src="https://github.com/pilot-z/pilot-z/blob/e73744ff4cfb586ab3112dd574ea861d201f2e4e/60391E64-0857-4904-8501-38FC56B7E9D3.gif" width="9%">[MICROLABELS & MORE](https://pronouns.cc/@.stan)⠀
+
 
 ☆ If I am being too much or overshare and if you don’t like that let me know! I also change my intro most of time bec im bored or maybe I said too much.😭
 
@@ -393,13 +501,6 @@ If you think I've taken things too far by using microlabels, xenogenders, alterh
 I’m not interested in transmed stuff neither. 
 
 
- 
-
-ꗞ — Whats the point of terms?
-It may not help, but i will try. 
-For me, I use them to discover more about myself. Thats it.
-May seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more. I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, to fit in. 
-Most of terms are in main pronouncc I’m only comfortable to share with people I trust.
 
 ꗞ — Am I a bad person for kinfirming overhated characters, even problematic ones like Blackhand n Sabretooth? No.
 If you think otherwise, thats okay, but keep it to yourself. Even you believe it is a choice.
@@ -435,101 +536,34 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 
  ☆ — I struggle with social cues. Sometimes I don't think before I speak. If I ever say something incorrect or something that could be offensive in any way, tell me! I will correct myself and then apologize. Don't be afraid to point it out to me as I said, I’m not afraid of my own mistakes 
 
- — I tend to get very clingy to the people[well, rarely.] I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
-
 
 </details>
 
 
- <details>
-<summary>DISLIKES !</summary>
-
-
-⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect.
-
-______________
-
-
-☆ Hard to explain, but Folks who weaponize the word woke or claims they’re CEO of “wokeness” act like someone is going to give them a medal for being a good guy. “Is it just me, or am I—“, , 
-Dear God no, you are not. 
-
-☆ I don't really like large crowds. Also, if it's a large group, I usually walk away.
-
-☆ ship discourse
-
-
-☆ riddler & fans from batman 2022 [ IWEC  unless we friends.]
-
-
-
-ꗞ —  Drama. I’m no interested in any online argument. Do not drag me into one. I’ll also not going check "call-out" posts. I find call-out posts stupid and pointless. While I understand that exposing genuinely bad behavior is important since public figures aren't always good people, most call-out posts are just absolute bullshit. I already expect some people to be bad, but these posts usually focus on stupid things and just turn into a bunch of petty gossip or people arguing over a minor disagreement, etc, etc. Showing their username and everything while claiming "do not harass this person." Is just a poor excuse. 
-I do stay away from drama as much as possible and rarely get involved.  I always prefer to look at both sides of an issue to form my own opinion before making up my mind. Thats all.
-
-
-
-
-☆ folks who think they’re better than anyone else. 🤔🤔🤔
-
-
-☆ DC New 52. I don’t care if ppl liked it. We have different opinions 
-
-☆ Seek drama. Like ppl who actively look to start drama. well as those who do not know how to apologize properly or take responsibility for their actions.
-
-
-☆ “Basic DNI” This phase gets on my nerves. What does that means? 
-
-
-
-☆ Making fun of mental health terms. Like triggers, or anything. That includes systems 
-
- 
-☆ People who have problems with friends, unless they have done something uncomfortable/upset someone.
-
-
-</details>
-
- <details>
-<summary>THIN ICES. NOT A DNI!</summary>
-
-☆ Invincible , Craig fans, Jason Todd/Batfam fans and Eddsworld fans unless friends.
-
-☆ Supernatural IWVEC/or don’t mention unless friends. 
-
-☆ yumeshipper of my highest kintypes unless we friends
-
-
-</details>
 
 <details>
-<summary>DNI MAY NOT WORK BUT I WONT BEFRIEND/WILL BLOCK/AND IGNORE !</summary>
+<summary>1 </summary>
+
+
+★ 
 
 
 
-⠀ ⠀ ⠀ ꗞ — My boundaries may be ridiculous, but they mostly come from bad past experiences, so please respect them. I do not expect you to change for my comfort, but I do ask for respect. It is my own responsibility to avoid interacting with people I dislike.
-
-____________
-
-  
-☆ Those who break their own boundaries. "Dni"
-
-
-☆ @shw1enholmes. He stinks… jk I love you
-
-
-☆ ppl who has "systems " in their dni list. Even obsessed of fakeclaiming or making fun of them. Don’t give me excuses.😭 
-
-☆ Ppl who has same name as my former friends. I feel petty sorry😞
-
-
-
-
-☆ No fandom DNI  
-
- 
-☆ Not going to list others. I'm going to block whoever I want. I block freely! If I don't like your vibe, I'll probably avoid or block you shrugs
-
-   
 </details>
+
+
+
+<details>
+<summary>2 </summary>
+
+
+★ 
+
+
+
+</details>
+
+
 
 ______________
 
@@ -551,3 +585,4 @@ _________
 [Waiting4Zome1.] whispers: keyz
 
 
+$${\color{#008000}  this  is  baka }$$
