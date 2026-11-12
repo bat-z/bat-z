@@ -1,7 +1,4 @@
 
-➜ Erik is literally so problematic! They infected people with joker cooties and now everyone has to go to the jokespital! Dni if you associate with them!  😒
-<img src="https://github.com/bat-z/bat-z/blob/354e708e9d985a0f5664ad4af7e24cc5aa1c48c7/IMG_8092.jpeg" width="80%">
-_____________
 
 <img src="https://github.com/pilot-z/pilot-z/blob/89866ae92d498dd4e727d1342553cf5a627313de/IMG_5328.jpeg" width="30%"><img src="https://github.com/pilot-z/pilot-z/blob/2a529d97a74147e924dac3d60e4315a43530ba57/IMG_5334.jpeg" width="30%"><img src="https://github.com/geikomi/geikomi/blob/333706f518c514d0c43039772ca28f159c562478/IMG_6616.jpeg" width="30%">
 
@@ -12,3 +9,10 @@ $${\color{#F2A67B}  ૮ ˶ᵔ ᵕ ᵔ˶ ა \ ME \ AS}$$ $${\color{60C1E5}S \ T 
 ⠀ ⠀ ⠀
 
  $${\color{#F2A67B} JIM \ AS KENNY \ N \ KIRK \ AS \ CARTMAN.\!!}$$
+
+ ______________________
+
+ WARNINGS:
+➜ Erik is literally so problematic! They infected people with joker cooties and now everyone has to go to the jokespital! Dni if you associate with them!  😒
+<img src="https://github.com/bat-z/bat-z/blob/354e708e9d985a0f5664ad4af7e24cc5aa1c48c7/IMG_8092.jpeg" width="80%">
+
